@@ -87,3 +87,6 @@ ist notwendig, aber auf Dauer zu dicht. Darum führt der Weg weiter
 nach oben, in einen Raum, der über den Schiffen liegt, schmal und
 still, ein Gang, der Überblick schenkt, ohne Einmischung: das
 Triforium.
+
+---
+[← Die Hauptschiffe](04%20Die%20Hauptschiffe.md) | [Inhaltsverzeichnis](01%20Einleitung.md) | [Weiter: Das Triforium →](06%20Das%20Triforium.md)
