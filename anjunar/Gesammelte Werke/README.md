@@ -1,5 +1,7 @@
 # Navigierbares Inhaltsverzeichnis – Gesammelte Werke
 
+![Bild](Bild.png)
+
 Dieses README bietet eine thematische Navigation durch die Sammlung. Jede Position ist verlinkt und erhält eine kurze (~100 Wörter) Zusammenfassung, damit der Inhalt und die Intention erkennbar sind, ohne die Datei zu öffnen.
 
 ## Schnellzugriff

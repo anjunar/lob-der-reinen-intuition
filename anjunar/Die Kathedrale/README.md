@@ -1,5 +1,7 @@
 ## Die Kathedrale
 
+![Bild](Bild.png)
+
 Die Kapitel sind als architektonischer Gang gedacht: Jede Station baut
 eine geistige Ebene des Werks auf und macht sie begehbar. Die Metapher
 der Kathedrale beschreibt ein Denken, das trägt, verbindet und nach

@@ -1,5 +1,7 @@
 # Wortlose Gedanken
 
+![Bild](Bild.png)
+
 Dieses Werk führt in eine stille, klare Sprache der Intuition und zeigt, wie innere
 Wahrheit im Alltag, in Beziehungen und in größeren Systemen wirksam wird. Die Kapitel
 folgen keinem linearen Lehrplan, sondern bilden einen wachsenden Bogen vom persönlichen
