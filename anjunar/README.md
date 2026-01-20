@@ -1,3 +1,4 @@
-[Wortlose Gedanken](<Wortlose%20Gedanken/README.md>)
-[Die Kathedrale](<Die%20Kathedrale/README.md>)
-[Gesammelte Werke](<Gesammelte%20Werke/README.md>)
+# Anjunar - Lob der reinen Intuition
+- [Werk 1. Wortlose Gedanken](<Wortlose%20Gedanken/README.md>)
+- [Werk 2. Die Kathedrale](<Die%20Kathedrale/README.md>)
+- [Werk 3. Gesammelte Werke](<Gesammelte%20Werke/README.md>)
