@@ -19,24 +19,24 @@ dass ich mich verändere?“ Die Antwort ist einfach: Du merkst es nicht.
 Aber dein Leben beginnt, anders auf dich zu reagieren. Das ist stille
 Veränderung. Du merkst es nicht, weil sie sich nicht wie Neuanfang
 anfühlt. Sie fühlt sich an wie ein Atemzug, ein Nein, ein Ja, ein
-Loslassen, ein Weitwerden, ein Sich-nicht-mehr-Verbiegen, ein
-Nicht-Eilen, ein Sich-Wieder-Finden. Stiller Fortschritt ist ein
-Fortschritt ohne Zuschauer. Es gibt keine Begeisterung, keine
-Transformation, keine Euphorie. Nur Stimmigkeit. Menschen überschätzen
-den Wert großer Entscheidungen und unterschätzen die Kraft kleiner
-Ausrichtungen. Ein winziger, stimmiger Schritt ist mächtiger als
-tausend große Schritte in die falsche Richtung. Warum? Weil das
-Wesentliche immer durch Kohärenz wächst, nicht durch Anstrengung.
-Stiller Fortschritt zeigt sich nicht darin, dass mehr geschieht,
-sondern dass weniger stört. Man denkt weniger gegen sich. Man handelt
-weniger aus Angst. Man verteidigt weniger Altes. Man verliert weniger
-Energie. Man kämpft weniger um Anerkennung. Man rennt weniger davon.
-Was bleibt, ist Klarheit. Nicht die laute, sondern die ruhige. Und mit
-der Klarheit kommt Vertrauen. Nicht als Gefühl. Als Zustand. Vertrauen
-bedeutet nicht, dass alles gut wird. Vertrauen bedeutet, dass du
-wirst, wer du bist — egal, was kommt. Und dort beginnt Fortschritt,
-der sich nicht beweisen muss. Stiller Fortschritt. Der einzige
-Fortschritt, der wirklich hält.
+Loslassen, ein Weitwerden, ein Sich-nicht-mehr-Verbiegen, ein Nicht-
+Eilen, ein Sich-Wieder-Finden. Stiller Fortschritt ist ein Fortschritt
+ohne Zuschauer. Es gibt keine Begeisterung, keine Transformation,
+keine Euphorie. Nur Stimmigkeit. Menschen überschätzen den Wert großer
+Entscheidungen und unterschätzen die Kraft kleiner Ausrichtungen. Ein
+winziger, stimmiger Schritt ist mächtiger als tausend große Schritte
+in die falsche Richtung. Warum? Weil das Wesentliche immer durch
+Kohärenz wächst, nicht durch Anstrengung. Stiller Fortschritt zeigt
+sich nicht darin, dass mehr geschieht, sondern dass weniger stört. Man
+denkt weniger gegen sich. Man handelt weniger aus Angst. Man
+verteidigt weniger Altes. Man verliert weniger Energie. Man kämpft
+weniger um Anerkennung. Man rennt weniger davon. Was bleibt, ist
+Klarheit. Nicht die laute, sondern die ruhige. Und mit der Klarheit
+kommt Vertrauen. Nicht als Gefühl. Als Zustand. Vertrauen bedeutet
+nicht, dass alles gut wird. Vertrauen bedeutet, dass du wirst, wer du
+bist — egal, was kommt. Und dort beginnt Fortschritt, der sich nicht
+beweisen muss. Stiller Fortschritt. Der einzige Fortschritt, der
+wirklich hält.
 
 ## Querverweise
 - [← Voriges Kapitel](<12 Mut zur Stimmigkeit – Warum der richtige Weg selten bequem beginnt.md>)

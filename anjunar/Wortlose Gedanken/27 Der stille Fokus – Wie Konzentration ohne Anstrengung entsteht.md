@@ -43,9 +43,9 @@ selbst sortiert. Beim Lesen, wenn die Worte sich direkt mit dem Kern
 verbinden. Beim Gespräch, wenn man nicht versucht zu wirken, sondern
 einfach präsent ist. In der Meditation, wenn der Raum sich in Richtung
 Klarheit öffnet. In kreativen Momenten, wenn das Formlose direkt in
-die Form tritt. Der stille Fokus ist ein Nebenprodukt des
-Arche-Punkts. Ein Nebenprodukt von Nähe zur Quelle. Warum ist stiller
-Fokus so viel stärker als gewöhnliche Konzentration? Weil gewöhnliche
+die Form tritt. Der stille Fokus ist ein Nebenprodukt des Arche-
+Punkts. Ein Nebenprodukt von Nähe zur Quelle. Warum ist stiller Fokus
+so viel stärker als gewöhnliche Konzentration? Weil gewöhnliche
 Konzentration gegen das Bewusstsein arbeitet, und stiller Fokus mit
 ihm. Gewöhnliche Konzentration nutzt Kraft. Stiller Fokus nutzt
 Klarheit. Kraft ermüdet. Klarheit vertieft. Kraft ist laut. Klarheit

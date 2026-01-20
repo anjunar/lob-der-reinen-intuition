@@ -1,16 +1,16 @@
 # Digitale Bewusstseinsräume – Wie Technologie Klarheit unterstützen kann
 
 Die digitale Welt ist voller Räume. Doch fast alle verstärken Enge,
-Reaktivität und Identität: Kommentarspalten, Social Media,
-Instant-Messaging, Foren, Gruppenräume. Diese Räume erzeugen Tempo
-statt Tiefe, Emotion statt Klarheit, Kampf statt Resonanz,
-Fragmentierung statt Ganzheit, Ego statt Bewusstsein, Lärm statt
-Stille. Nicht, weil Menschen schlecht wären. Sondern weil die
-Architektur dazu zwingt. Digitale Räume prägen Bewusstsein viel
-stärker, als den meisten bewusst ist. Darum ist es entscheidend, wie
-man sie baut. Ein digitaler Bewusstseinsraum ist ein Raum, der drei
-Dinge ermöglicht: Klarheit, Langsamkeit, Resonanz. Ein Raum, in dem
-Bewusstsein wachsen kann.
+Reaktivität und Identität: Kommentarspalten, Social Media, Instant-
+Messaging, Foren, Gruppenräume. Diese Räume erzeugen Tempo statt
+Tiefe, Emotion statt Klarheit, Kampf statt Resonanz, Fragmentierung
+statt Ganzheit, Ego statt Bewusstsein, Lärm statt Stille. Nicht, weil
+Menschen schlecht wären. Sondern weil die Architektur dazu zwingt.
+Digitale Räume prägen Bewusstsein viel stärker, als den meisten
+bewusst ist. Darum ist es entscheidend, wie man sie baut. Ein
+digitaler Bewusstseinsraum ist ein Raum, der drei Dinge ermöglicht:
+Klarheit, Langsamkeit, Resonanz. Ein Raum, in dem Bewusstsein wachsen
+kann.
 
 Klarheit bedeutet: Die Struktur schützt den Gedanken. Ein digitaler
 Raum, der Klarheit fördert, braucht präzise Architektur. Drei
@@ -48,10 +48,9 @@ bevor jemand weiterdenkt, spiegelt er: „Ich habe dich so verstanden
 …“. Das erzeugt Präzision und verhindert Missklang. Raumhalter-Rollen
 — ein digitaler Raum braucht Menschen, die den Raum halten: Weite
 sichern, Klarheit bewahren, Stille ermöglichen, Enge sichtbar machen.
-Das ist keine Machtposition, sondern eine Dienstfunktion.
-Linien-Kompass — jeder Beitrag wird anhand der Frage geprüft: „Macht
-das den Raum weiter oder enger?“. Diese Frage ist das Herz digitaler
-Resonanz.
+Das ist keine Machtposition, sondern eine Dienstfunktion. Linien-
+Kompass — jeder Beitrag wird anhand der Frage geprüft: „Macht das den
+Raum weiter oder enger?“. Diese Frage ist das Herz digitaler Resonanz.
 
 Digitale Bewusstseinsräume sind wichtig, weil das Bewusstsein der
 Menschheit heute in digitalen Räumen entsteht. Nicht mehr am Feuer.

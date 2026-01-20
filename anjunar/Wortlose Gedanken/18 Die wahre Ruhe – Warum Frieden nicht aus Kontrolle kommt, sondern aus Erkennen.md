@@ -13,12 +13,12 @@ Kontrolle über Gedanken, Kontrolle über Verhalten, Kontrolle über die
 Zukunft, Kontrolle über das eigene Leben. Doch Kontrolle bringt keine
 Ruhe. Kontrolle erzeugt Spannung. Was man kontrollieren muss, muss man
 festhalten. Was man festhält, macht eng. Und Enge ist das Gegenteil
-von Ruhe. Ruhe entsteht nicht durch Festhalten, sondern durch
-Nicht-Festhalten. Nicht als Technik, sondern als Erkenntnis: „Ich muss
-mich nicht halten. Ich bin der Raum, in dem gehalten wird.“ Ruhe
-entsteht, wenn man erkennt, dass im Inneren nichts bedroht ist. Das
-klingt abstrakt, ist aber erlebbar — in jedem Moment, in dem man nicht
-mit dem Lärm in sich mitgeht. Man muss dafür nichts tun. Man muss nur
+von Ruhe. Ruhe entsteht nicht durch Festhalten, sondern durch Nicht-
+Festhalten. Nicht als Technik, sondern als Erkenntnis: „Ich muss mich
+nicht halten. Ich bin der Raum, in dem gehalten wird.“ Ruhe entsteht,
+wenn man erkennt, dass im Inneren nichts bedroht ist. Das klingt
+abstrakt, ist aber erlebbar — in jedem Moment, in dem man nicht mit
+dem Lärm in sich mitgeht. Man muss dafür nichts tun. Man muss nur
 aufhören, zu glauben, dass der Lärm die Wahrheit ist. Ruhe entsteht,
 wenn man nicht mehr versucht, den Inhalt des Bewusstseins zu
 kontrollieren. Der Beobachter sieht, dass alles kommt und geht.

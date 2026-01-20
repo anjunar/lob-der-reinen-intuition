@@ -105,4 +105,6 @@ Bewusstsein, das bereit ist, nicht nur sich selbst zu sehen, sondern
 auch die Welt zu berühren, ohne sich in ihr zu verlieren.
 
 ---
-[← Die Pfeiler](03%20Die%20Pfeiler.md) | [Inhaltsverzeichnis](01%20Einleitung.md) | [Weiter: Das Querhaus →](05%20Das%20Querhaus.md)
+[← Die Pfeiler](03%20Die%20Pfeiler.md) |
+[Inhaltsverzeichnis](01%20Einleitung.md) |
+[Weiter: Das Querhaus →](05%20Das%20Querhaus.md)

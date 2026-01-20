@@ -25,13 +25,13 @@ aber spürbar. Der Arche-Punkt wirkt wie ein Tor, durch das Wahrheit in
 die Form tritt. Und dieses Tor hat drei Eigenschaften: Es ist
 vollkommen still. Bevor ein Gedanke entsteht, ist nichts. Nicht Leere,
 sondern Stille. Diese Stille ist nicht das Fehlen von Leben. Sie ist
-die Matrix, aus der alles Leben hervorgeht. Stille ist kein
-Nicht-Zustand. Sie ist die reinste Form des Bewusstseins. Es ist
-vollkommen offen. Der Arche-Punkt drängt nichts. Er hält nichts
-zurück. Er erlaubt alles. Aus dieser Offenheit entsteht Freiheit — die
-Freiheit, dass jede Form entstehen darf, aber keine muss. Daraus kommt
-die natürliche Kreativität des menschlichen Geistes. Die besten Ideen
-sind nicht konstruiert. Sie treten durch Offenheit. Es ist vollkommen
+die Matrix, aus der alles Leben hervorgeht. Stille ist kein Nicht-
+Zustand. Sie ist die reinste Form des Bewusstseins. Es ist vollkommen
+offen. Der Arche-Punkt drängt nichts. Er hält nichts zurück. Er
+erlaubt alles. Aus dieser Offenheit entsteht Freiheit — die Freiheit,
+dass jede Form entstehen darf, aber keine muss. Daraus kommt die
+natürliche Kreativität des menschlichen Geistes. Die besten Ideen sind
+nicht konstruiert. Sie treten durch Offenheit. Es ist vollkommen
 unpersönlich. Der Arche-Punkt kennt kein Ego. Er kennt keine
 Geschichte. Keine Angst. Kein Wollen. Kein Schutz. Er ist reine
 Möglichkeit. Darum wirken die tiefsten Gedanken manchmal „zu groß“,
