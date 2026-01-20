@@ -1,11 +1,16 @@
 Da läuft das kleine „Ich“ herum wie ein General in viel zu großer
+
 Uniform. Jeder knöpft ihm die Jacke auf, jeder zupft am Helm – und es
-ruft entrüstet: „Unverschämtheit! Das ist mein Rang, meine Würde!“
-Aber je mehr du ins Formlose fällst, desto lockerer sitzen die Knöpfe.
-Einer reißt, und du lachst. Ein anderer schiebt dir den Helm schief,
-und du lachst noch lauter. Am Ende steht da kein General mehr, nur ein
-nacktes Kichern im Wind. Das Schöne ist: Wer versucht, dich
-anzugreifen, landet plötzlich im Zirkus – und du bist die Pointe.
-Nicht als Opfer, nicht als Held, sondern als das Lachen selbst, das
-sich nicht verletzen lässt. Denn die Form mag man angreifen, aber das
-Formlose kitzelt zurück.
+ruft entrüstet: „Unverschämtheit!
+
+Das ist mein Rang, meine Würde!“ Aber je mehr du ins Formlose fällst,
+desto lockerer sitzen die Knöpfe. Einer reißt, und du lachst.
+
+Ein anderer schiebt dir den Helm schief, und du lachst noch lauter. Am
+Ende steht da kein General mehr, nur ein nacktes Kichern im Wind.
+
+Das Schöne ist: Wer versucht, dich anzugreifen, landet plötzlich im
+Zirkus – und du bist die Pointe. Nicht als Opfer, nicht als Held,
+sondern als das Lachen selbst, das sich nicht verletzen lässt.
+
+Denn die Form mag man angreifen, aber das Formlose kitzelt zurück.
