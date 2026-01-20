@@ -73,6 +73,6 @@ Krise. Eine Kultur, die sich stetig erneuert, ist eine Kultur, die nie
 stirbt.
 
 ## Querverweise
-- [← Voriges Kapitel](<58 Kulturelle Emergenz – Wie ein System eine eigene Kultur hervorbringt.md>)
-- [Nächstes Kapitel →](<60 Das stille Zentrum – Warum jeder große Raum eine innere Stille braucht.md>)
+- [← Voriges Kapitel](<57 Kulturelle Emergenz – Wie ein System eine eigene Kultur hervorbringt.md>)
+- [Nächstes Kapitel →](<59 Das stille Zentrum – Warum jeder große Raum eine innere Stille braucht.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)
