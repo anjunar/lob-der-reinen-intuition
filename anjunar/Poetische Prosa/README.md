@@ -1,8 +1,8 @@
 # Inhaltsverzeichnis
 
-- [Aus der Ewigkeit gefallen](<Aus der Ewigkeit gefallen.md>) (auch in [Gesammelte Werke](../Gesammelte%20Werke/README.md))
+- [Aus der Ewigkeit gefallen](<Aus der Ewigkeit gefallen.md>) 
 - [Aus der Tiefe](<Aus der Tiefe.md>)
-- [Das Gebet](<Das Gebet.md>) (auch in [Gesammelte Werke](../Gesammelte%20Werke/README.md))
+- [Das Gebet](<Das Gebet.md>) 
 - [Das Schweigen vor dem Ursprung](<Das Schweigen vor dem Ursprung.md>)
 - [Das kleine Ich](<Das kleine Ich.md>)
 - [Dein Weg](<Dein Weg.md>)
@@ -10,7 +10,7 @@
 - [Die Innenschau des Formlosen](<Die Innenschau des Formlosen.md>)
 - [Die Sprache des Lichts](<Die Sprache des Lichts.md>)
 - [Die Würde des Handelns](<Die Würde des Handelns.md>)
-- [Die stille Kunst des Zielens](<Die stille Kunst des Zielens.md>) (auch in [Gesammelte Werke](../Gesammelte%20Werke/README.md))
+- [Die stille Kunst des Zielens](<Die stille Kunst des Zielens.md>)
 - [Es gibt ein zartes Paradox auf dem Weg des Loslassens](<Es gibt ein zartes Paradox auf dem Weg des Loslassens.md>)
 - [Es ist wie das Lernen eines Instruments](<Es ist wie das Lernen eines Instruments.md>)
 - [Heute ist ein leiser Tag](<Heute ist ein leiser Tag.md>)
