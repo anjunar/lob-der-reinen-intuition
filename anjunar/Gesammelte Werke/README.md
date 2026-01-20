@@ -2,8 +2,16 @@
 
 Dieses Inhaltsverzeichnis ordnet die Texte thematisch und gibt zu
 jedem Eintrag eine kurze Orientierung.
+Als Kompendium versammelt es die wichtigsten Linien des Gesamtwerks,
+von Ontologie über Bewusstsein bis zu gesellschaftlichen Spiegelungen.
+Du kannst es linear lesen oder als Landkarte nutzen: Wähle eine Sektion,
+beginne mit dem Startkapitel und folge dann den Verästelungen nach Bedarf.
 
 ## I. Ursprung, Sein und Absolutes
+
+Diese Sektion legt die metaphysische Grundlage und skizziert das Absolute
+als stillen Hintergrund, aus dem Form, Leben und Bewusstsein hervortreten.
+**Startkapitel:** [Der große Überblick](Der%20gro%C3%9Fe%20%C3%9Cberblick.md)
 
 - [Das Erste, das Ewige und die lebendige Welt](Das%20Erste%2C%20das%20Ewige%20und%20die%20lebendige%20Welt.md)
   – Grundlegung einer alles tragenden Wirklichkeit, die jenseits von
@@ -46,7 +54,7 @@ jedem Eintrag eine kurze Orientierung.
   überschreitet.
 - [Aus der Ewigkeit gefallen](Aus%20der%20Ewigkeit%20gefallen.md) –
   Zeichnet den Menschen als Ursprung aus Zeitlosigkeit und nicht aus
-  der Zeit.
+  der Zeit. (Auch in [Poetische Prosa](../Poetische%20Prosa/README.md))
 - [Der Aufstieg](Der%20Aufstieg.md) – Beschreibt den Übergang vom
   Formlosen zur manifesten Welt und zurück.
 - [Die fünfte Dimension](Die%20f%C3%BCnfte%20Dimension.md) – Versteht
@@ -57,6 +65,10 @@ jedem Eintrag eine kurze Orientierung.
   – Zeigt Schönheit als Kriterium tiefer Wahrheit.
 
 ## II. Kosmologie, Physik und Schöpfungsmodelle
+
+Hier stehen die kosmischen Perspektiven im Zentrum: Schöpfung, Raum,
+Zeit und das Verhältnis von Physik und Bewusstsein. **Startkapitel:**
+[Von Ex-Nihilo zu dem Atmenden Universum](Von%20Ex-Nihilo%20zu%20dem%20Atmenden%20Universum.md)
 
 - [Die Entstehung des Universums](Die%20Entstehung%20des%20Universums.md)
   – Erklärt den Ursprung als zeitlosen Anfang statt als historisches
@@ -80,6 +92,10 @@ jedem Eintrag eine kurze Orientierung.
   Wirklichkeit als göttliches „Rendering“ des Seins.
 
 ## III. Bewusstsein, Psyche und Erkenntnis
+
+Diese Texte beleuchten die innere Erfahrung, die Dynamik der Psyche
+und die feinen Übergänge zwischen Denken, Fühlen und Erkennen.
+**Startkapitel:** [Alles sind Zusammenhänge – Gedanken, Intuition und Gefühle](Alles%20sind%20Zusammenh%C3%A4nge%20%E2%80%93%20Gedanken%2C%20Intuition%20und%20Gef%C3%BChle.md)
 
 - [Alles sind Zusammenhänge – Gedanken, Intuition und Gefühle](Alles%20sind%20Zusammenh%C3%A4nge%20%E2%80%93%20Gedanken%2C%20Intuition%20und%20Gef%C3%BChle.md)
   – Zeigt, wie Zusammenhänge Gedanken und Gefühle hervorbringen.
@@ -113,10 +129,14 @@ jedem Eintrag eine kurze Orientierung.
   – Zeigt, wie rationale Klarheit durch innere Tiefe gewinnt.
 - [Die stille Kunst des Zielens](Die%20stille%20Kunst%20des%20Zielens.md)
   – Beschreibt zielorientiertes Handeln aus innerer Genügsamkeit.
+  (Auch in [Poetische Prosa](../Poetische%20Prosa/README.md))
 - [Der Bruch der Schöpfung](Der%20Bruch%20der%20Sch%C3%B6pfung.md) –
   Deutet Bruch und Unvollkommenheit als Quelle von Kreativität.
 
 ## IV. Liebe, Beziehung und Ethik
+
+Im Fokus stehen Liebe als ontologisches Prinzip und Beziehung als Ort,
+an dem Wahrheit geerdet wird. **Startkapitel:** [Das höchste Sein ist die Liebe](Das%20h%C3%B6chste%20Sein%20ist%20die%20Liebe.md)
 
 - [Das höchste Sein ist die Liebe](Das%20h%C3%B6chste%20Sein%20ist%20die%20Liebe.md)
   – Begründet Liebe als höchste ontologische Wirklichkeit.
@@ -139,6 +159,10 @@ jedem Eintrag eine kurze Orientierung.
 
 ## V. Spiritualität, Religion und Rituale
 
+Diese Sektion bündelt spirituelle Praxis, religiöse Perspektiven und
+rituelle Formen als Wege der Vertiefung. **Startkapitel:**
+[Die spirituelle Leiter](Die%20spirituelle%20Leiter.md)
+
 - [Brahman – das Prinzip der Wiederkehr](Brahman%20%E2%80%93%20das%20Prinzip%20der%20Wiederkehr.md)
   – Setzt Brahman als Hintergrund des Kreislaufs von Wiederkehr.
 - [Brahman, das höchste Prinzip und die anderen Religionen](Brahman%2C%20das%20h%C3%B6chste%20Prinzip%20und%20die%20anderen%20Religionen.md)
@@ -151,7 +175,7 @@ jedem Eintrag eine kurze Orientierung.
 - [Die spirituelle Leiter](Die%20spirituelle%20Leiter.md) – Skizziert
   den Weg von Egoverstrickung zu Transzendenz.
 - [Das Gebet](Das%20Gebet.md) – Zeichnet Gebet als stilles Zeugen ohne
-  Ich-Verhaftung.
+  Ich-Verhaftung. (Auch in [Poetische Prosa](../Poetische%20Prosa/README.md))
 - [Wie man Gott liebt](Wie%20man%20Gott%20liebt.md) – Reflektiert
   Liebe zu Gott als Auflösung der Trennung von Sehendem und Gesehenem.
 - [Warum Gott schweigt](Warum%20Gott%20schweigt.md) – Deutet das
@@ -164,6 +188,9 @@ jedem Eintrag eine kurze Orientierung.
   – Führt in eine ruhige Meditationspraxis mit würdiger Ausrichtung.
 
 ## VI. Gesellschaft, Zeitdiagnose und Gleichnisse
+
+Zum Schluss weitet sich der Blick auf kollektive Dynamiken, Gleichnisse
+und zeitdiagnostische Texte. **Startkapitel:** [Das Friedensmodell](Das%20Friedensmodell.md)
 
 - [Das Friedensmodell](Das%20Friedensmodell.md) – Entwirft einen Weg,
   kollektive Verletzungen in Frieden zu verwandeln.
