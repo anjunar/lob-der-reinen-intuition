@@ -1,5 +1,7 @@
 # Psychisches Gleichgewicht
 
+![Bild](./Psychisches%20Gleichgewicht.jpg)
+
 Das psychische Gleichgewicht ist kein schöner, fester Zustand, den man
 irgendwann „hat“, sondern ein ständiges, oft mühsames Gerangel mit
 sich selbst. Es setzt sich aus tausenden kleiner Gedanken zusammen –

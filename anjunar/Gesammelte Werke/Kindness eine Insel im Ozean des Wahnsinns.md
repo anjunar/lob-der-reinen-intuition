@@ -1,5 +1,7 @@
 # Kindness an Island in the Ocean of Madness
 
+![Bild](./Kindness%20eine%20Insel%20im%20Ozean%20des%20Wahnsinns.jpg)
+
 Kindness ist nicht einfach eine freundliche Geste oder eine moralische
 Haltung, sondern die grundlegende Bedingung dafür, dass ein
 Bewusstsein nicht im „Ozean des Wahnsinns“ untergeht. Die Welt selbst

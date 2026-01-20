@@ -1,5 +1,7 @@
 # Endlichkeit oder Unendlichkeit?
 
+![Endlichkeit oder Unendlichkeit?](./Endlichkeit%20oder%20Unendlichkeit.jpg)
+
 Dieser Text vereinfacht radikal. Er stellt zwei archetypische
 Antworten der Menschheit auf die Frage „endlich oder unendlich?“
 scharf gegenüber: einen personalen Pol (Endlichkeit, Geschichte,
