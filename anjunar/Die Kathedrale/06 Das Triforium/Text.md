@@ -114,6 +114,3 @@ sondern selbstverständlich: das Hochchor, der Raum, in dem nicht nur
 
 Der Raum, in dem Vision nicht gedacht wird, sondern erscheint.
 
---- [← Das Querhaus](05%20Das%20Querhaus.md) |
-[Inhaltsverzeichnis](01%20Einleitung.md) | [Weiter: Das Hochchor
-→](07%20Das%20Hochchor.md)

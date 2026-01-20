@@ -93,7 +93,3 @@ entsteht Reife.
 Dort entsteht Zukunft. Das stille Zentrum ist die Quelle des gesamten
 Raumes.
 
-## Querverweise
-- [← Voriges Kapitel](<58 Kulturelle Plastizität – Wie eine Kultur sich
-  erneuern kann, ohne zu zerbrechen.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

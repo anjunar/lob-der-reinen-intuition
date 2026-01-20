@@ -142,9 +142,3 @@ drängen.
 
 Und nur du kannst ihn gehen.
 
-## Querverweise
-- [← Voriges Kapitel](<02 Die stille Entscheidung – Wie Intuition im
-  Alltag wirkt.md>)
-- [Nächstes Kapitel →](<04 Die innere Weite – Warum Klarheit nicht aus
-  Tiefe entsteht.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

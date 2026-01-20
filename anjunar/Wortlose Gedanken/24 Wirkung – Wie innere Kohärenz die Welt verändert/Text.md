@@ -73,9 +73,3 @@ Wirkung entsteht aus dem Ort, aus dem du kommst — nicht aus der Form
 deiner Handlung. Der nächste Schritt führt in Kapitel 25 — ein weit
 nach außen geöffnetes Kapitel.
 
-## Querverweise
-- [← Voriges Kapitel](<23 Das stille Werden – Wie Form ohne Zwang
-  entsteht.md>)
-- [Nächstes Kapitel →](<25 Der klare Schritt – Wie Handlung aus
-  Bewusstsein entsteht.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

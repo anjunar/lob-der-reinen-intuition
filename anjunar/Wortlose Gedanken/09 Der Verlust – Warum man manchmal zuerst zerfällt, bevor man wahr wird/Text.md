@@ -61,9 +61,3 @@ Eine Stille, die nicht von Resignation kommt, sondern von Wahrheit.
 
 Denn Wahrheit entlastet. Immer.
 
-## Querverweise
-- [← Voriges Kapitel](<08 Die innere Wahrheit – Warum Wahrheit nicht
-  beweisen muss, dass sie wahr ist.md>)
-- [Nächstes Kapitel →](<10 Integration – Wie man mit seiner inneren
-  Wahrheit leben lernt.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

@@ -77,9 +77,3 @@ Leise.
 
 Unverhandelbar. Wahr.
 
-## Querverweise
-- [← Voriges Kapitel](<04 Die innere Weite – Warum Klarheit nicht aus
-  Tiefe entsteht.md>)
-- [Nächstes Kapitel →](<06 Stille als Ursprung – Warum Klarheit aus
-  Nicht-Handeln entsteht.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

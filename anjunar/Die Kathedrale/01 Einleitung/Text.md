@@ -20,4 +20,3 @@ Intuition, Translogik, das Formlose — all das funktioniert nur, wenn
 der Mensch sich nicht als „fixiertes Ich“, sondern als ein in
 Beziehung schwingendes Bewusstsein versteht.
 
-[Weiter: Die Krypta →](02%20Die%20Krypta.md)

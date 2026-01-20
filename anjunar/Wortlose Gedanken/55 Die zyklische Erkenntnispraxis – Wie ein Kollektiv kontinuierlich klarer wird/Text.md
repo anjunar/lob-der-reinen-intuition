@@ -88,9 +88,3 @@ einfangen, werden zu Orten, an denen Wahrheit entsteht.
 
 Technology Speaks soll genau so ein Ort sein.
 
-## Querverweise
-- [← Voriges Kapitel](<54 Gemeinsames Lernen – Wie ein Kollektiv Wissen
-  internalisiert.md>)
-- [Nächstes Kapitel →](<57 Selbstorganisierte Ordnung – Wie Klarheit
-  ohne Führung entsteht.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

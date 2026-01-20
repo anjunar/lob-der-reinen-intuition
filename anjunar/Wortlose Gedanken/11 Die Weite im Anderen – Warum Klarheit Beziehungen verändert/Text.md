@@ -66,9 +66,3 @@ Deshalb verändern sich Beziehungen, wenn du beginnst, wahr zu werden.
 Nicht, weil du etwas tust. Sondern weil du etwas nicht mehr tust: Dich
 selbst klein machen.
 
-## Querverweise
-- [← Voriges Kapitel](<10 Integration – Wie man mit seiner inneren
-  Wahrheit leben lernt.md>)
-- [Nächstes Kapitel →](<12 Mut zur Stimmigkeit – Warum der richtige Weg
-  selten bequem beginnt.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

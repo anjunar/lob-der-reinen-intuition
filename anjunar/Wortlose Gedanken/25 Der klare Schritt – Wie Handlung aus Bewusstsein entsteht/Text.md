@@ -86,9 +86,3 @@ Ja, das du nicht überhöht formulierst.
 Der klare Schritt ist immer bescheiden. Aber er verändert alles.
 Nicht, weil er groß ist. Sondern weil er wahr ist.
 
-## Querverweise
-- [← Voriges Kapitel](<24 Wirkung – Wie innere Kohärenz die Welt
-  verändert.md>)
-- [Nächstes Kapitel →](<26 Die äußere Linie – Wie innere Stimmigkeit ein
-  Leben formt.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

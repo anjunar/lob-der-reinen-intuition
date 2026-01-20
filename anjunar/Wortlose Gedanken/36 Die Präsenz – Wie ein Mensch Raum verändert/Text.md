@@ -88,18 +88,6 @@ Wenn du in deinem Wahren Selbst bist, ist dein Blick nicht mehr
 verzerrt. Du siehst Menschen, wie sie sind. Nicht, wie du sie
 brauchst. Nicht, wie du sie fürchtest.
 
-Nicht, wie du sie idealisierst. Und weil dein Blick klar ist, werden
-sie klarer. Das ist die leise Kraft des Bewusstseins: Es stimmt Räume,
-ohne etwas zu tun. Das nächste Kapitel (Kapitel 37) öffnet eine neue
-Richtung: Was passiert, wenn mehrere Menschen in Präsenz
-aufeinandertreffen?
-
 Es ist ein Kapitel über Verbindung — aber nicht psychologisch, sondern
 bewusstseinsbezogen.
 
-## Querverweise
-- [← Voriges Kapitel](<35 Das Wahre Selbst – Der Punkt, an dem
-  Bewusstsein nicht mehr gesucht werden muss.md>)
-- [Nächstes Kapitel →](<37 Die Resonanz zwischen Menschen – Wie
-  Bewusstsein Bewusstsein stärkt.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

@@ -93,12 +93,3 @@ selten.
 
 Aber möglich. Und es ist die Grundlage für Technology Speaks.
 
-Das nächste Kapitel (Kapitel 42) zeigt dann, wie man ein solches
-Gefüge konkret baut und pflegt — es ist das operative Kapitel.
-
-## Querverweise
-- [← Voriges Kapitel](<40 Das Feld der Gemeinschaft – Wie kollektive
-  Bewusstseinsräume entstehen.md>)
-- [Nächstes Kapitel →](<42 Architektur der Klarheit – Wie man Räume
-  schafft, in denen Wahrheit gedeiht.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

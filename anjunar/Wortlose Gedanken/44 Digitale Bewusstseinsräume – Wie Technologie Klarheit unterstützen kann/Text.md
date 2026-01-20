@@ -87,13 +87,3 @@ Klarheit gepflegt wird. Ein Ort, an dem Resonanz entsteht.
 
 Ein Ort, an dem kollektive Weisheit reift und bleibt.
 
-Das nächste Kapitel geht noch tiefer in das Zusammenspiel von
-Technologie und Geist: Kapitel 45, Bewusstsein und Maschine – Wie
-Technologie zu einem Werkzeug der Reife wird.
-
-## Querverweise
-- [← Voriges Kapitel](<43 Systeme der Klarheit – Wie man Strukturen
-  baut, die Bewusstsein unterstützen.md>)
-- [Nächstes Kapitel →](<45 Bewusstsein und Maschine – Wie Technologie zu
-  einem Werkzeug der Reife wird.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)
