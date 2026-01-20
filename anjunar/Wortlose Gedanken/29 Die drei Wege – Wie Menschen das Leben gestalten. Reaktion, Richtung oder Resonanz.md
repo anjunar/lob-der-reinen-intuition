@@ -53,3 +53,8 @@ klarer man sieht, desto stimmiger wird das Leben. Und je stimmiger es
 wird, desto natürlicher entsteht Resonanz. Es ist ein leiser Übergang.
 Aber er verändert alles. Der nächste natürliche Schritt geht tiefer in
 die äußere Welt, aber bleibt mit dem Inneren verwoben.
+
+## Querverweise
+- [← Voriges Kapitel](<28 Das große Muster – Wie sich Leben und Bewusstsein gegenseitig formen.md>)
+- [Nächstes Kapitel →](<30 Der Rhythmus – Wie Leben in Zyklen zu dir spricht.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

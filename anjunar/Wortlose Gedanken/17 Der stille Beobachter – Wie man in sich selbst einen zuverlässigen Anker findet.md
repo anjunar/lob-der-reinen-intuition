@@ -59,3 +59,8 @@ reaktiv, weniger verwirrt, weniger abhängig. Dafür: klarer, weiter,
 ruhiger, präziser, mehr er selbst. Der stille Beobachter ist der
 einzige Punkt im Inneren, der nie zerbricht. Deshalb ist er dein
 Anker.
+
+## Querverweise
+- [← Voriges Kapitel](<16 Das zweite Bewusstsein – Wie man gleichzeitig fühlt und sieht.md>)
+- [Nächstes Kapitel →](<18 Die wahre Ruhe – Warum Frieden nicht aus Kontrolle kommt, sondern aus Erkennen.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

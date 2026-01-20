@@ -57,3 +57,8 @@ Intelligenz. Dort lebt die Linie. Dort entsteht Klarheit. Dort liegt
 die Wahrheit. Dort beginnt der Weg. Dort beginnst du. Und alles, was
 du im Leben tust, ist nichts anderes als die Bewegung von Form in
 Richtung ihres Ursprungs.
+
+## Querverweise
+- [← Voriges Kapitel](<19 Die natürliche Bewegung – Wie Leben ohne Druck entsteht.md>)
+- [Nächstes Kapitel →](<21 Das natürliche Erkennen – Warum Wahrheit nicht gesucht, sondern erinnert wird.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

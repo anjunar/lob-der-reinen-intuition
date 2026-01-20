@@ -72,3 +72,8 @@ aus der deine Plattform entsteht.
 
 Das nächste Kapitel führt dieses kreative Gefüge noch tiefer — es geht
 darum, wie Ideen in Form wachsen.
+
+## Querverweise
+- [← Voriges Kapitel](<45 Bewusstsein und Maschine – Wie Technologie zu einem Werkzeug der Reife wird.md>)
+- [Nächstes Kapitel →](<47 Die Metapher der Form – Wie Gedanken zu Strukturen werden.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

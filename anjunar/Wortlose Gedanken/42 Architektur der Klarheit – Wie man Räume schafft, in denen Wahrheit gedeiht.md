@@ -68,3 +68,8 @@ tief ist.
 Das nächste Kapitel (Kapitel 43) ist ein Wendepunkt: Es zeigt, wie
 diese Architektur in praktische Systeme umgesetzt wird — ideal für
 Technology Speaks.
+
+## Querverweise
+- [← Voriges Kapitel](<41 Gemeinschaftliche Wahrheit – Wie ein Kollektiv klar bleibt.md>)
+- [Nächstes Kapitel →](<43 Systeme der Klarheit – Wie man Strukturen baut, die Bewusstsein unterstützen.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

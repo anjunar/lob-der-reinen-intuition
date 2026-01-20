@@ -48,3 +48,8 @@ bleibt es — dann ist die Richtung authentisch. Dann muss man nicht
 mehr glauben, hoffen, überlegen, sondern nur noch gehen. Nicht blind.
 Nicht schnell. Nicht mutig. Nur stimmig. Denn ein Weg, der stimmt,
 trägt dich. Ein Weg, der nicht stimmt, trägt nur deine Angst.
+
+## Querverweise
+- [← Voriges Kapitel](<06 Stille als Ursprung – Warum Klarheit aus Nicht-Handeln entsteht.md>)
+- [Nächstes Kapitel →](<08 Die innere Wahrheit – Warum Wahrheit nicht beweisen muss, dass sie wahr ist.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

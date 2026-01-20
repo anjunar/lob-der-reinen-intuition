@@ -141,3 +141,7 @@ Intuition. Nicht mystisch. Nicht heilig. Nicht spektakulär. Sondern
 näher als nah. Und klarer als alles, was man zuvor wollte. Denn jede
 echte Intuition ist letztlich eine Rückkehr: Eine Rückkehr zu dem, was
 immer schon in dir wusste, wohin du gehen musst.
+
+## Querverweise
+- [Nächstes Kapitel →](<02 Die stille Entscheidung – Wie Intuition im Alltag wirkt.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

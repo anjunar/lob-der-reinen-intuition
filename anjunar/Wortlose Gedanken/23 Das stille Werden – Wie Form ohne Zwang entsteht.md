@@ -43,3 +43,8 @@ Mensch, der in diesem Modus lebt, spürt: Er muss weniger tun — und
 erreicht mehr. Nicht als Leistung. Als Wirkung. Weil er nicht den
 Fluss stört. Der nächste natürliche Schritt führt in Kapitel 24 — ein
 Übergangskapitel, das die innere Bewegung nach außen öffnet.
+
+## Querverweise
+- [← Voriges Kapitel](<22 Der Arche-Punkt – Wie Bewusstsein aus Einheit Form annimmt.md>)
+- [Nächstes Kapitel →](<24 Wirkung – Wie innere Kohärenz die Welt verändert.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

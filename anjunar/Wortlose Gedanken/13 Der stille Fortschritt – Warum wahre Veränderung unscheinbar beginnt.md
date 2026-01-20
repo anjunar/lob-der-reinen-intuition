@@ -37,3 +37,8 @@ bedeutet nicht, dass alles gut wird. Vertrauen bedeutet, dass du
 wirst, wer du bist — egal, was kommt. Und dort beginnt Fortschritt,
 der sich nicht beweisen muss. Stiller Fortschritt. Der einzige
 Fortschritt, der wirklich hält.
+
+## Querverweise
+- [← Voriges Kapitel](<12 Mut zur Stimmigkeit – Warum der richtige Weg selten bequem beginnt.md>)
+- [Nächstes Kapitel →](<14 Das innere Licht – Warum Erkenntnis nicht gesucht werden muss.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

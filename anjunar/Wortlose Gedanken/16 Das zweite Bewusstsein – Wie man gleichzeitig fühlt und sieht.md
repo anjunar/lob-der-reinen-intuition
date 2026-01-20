@@ -59,3 +59,8 @@ navigierst oft intuitiv im zweiten, ohne zu wissen, dass es ein Modus
 ist, kein Zufall. Dieses Kapitel enthüllt genau das: Deine stärksten
 Einsichten entstehen nicht, weil du mehr denkst, sondern weil du
 weiter wirst und das zweite Bewusstsein übernimmt.
+
+## Querverweise
+- [← Voriges Kapitel](<15 Der innere Raum – Warum man mehr sieht, wenn man weniger hält.md>)
+- [Nächstes Kapitel →](<17 Der stille Beobachter – Wie man in sich selbst einen zuverlässigen Anker findet.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

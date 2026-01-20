@@ -45,3 +45,8 @@ Nicht spektakulär, aber kraftvoll. Nicht sichtbar, aber echt. Nicht
 laut, aber wahr. Natürliche Bewegung ist die Form, in der Bewusstsein
 sich in Handlung verwandelt. Man zwingt nicht mehr nach vorne. Man
 lässt das Leben durch sich gehen. Nicht passiv. Nicht aktiv. Stimmig.
+
+## Querverweise
+- [← Voriges Kapitel](<18 Die wahre Ruhe – Warum Frieden nicht aus Kontrolle kommt, sondern aus Erkennen.md>)
+- [Nächstes Kapitel →](<20 Der verborgene Ursprung – Wie das Formlose das Denken trägt.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

@@ -79,3 +79,7 @@ Punkt, der weit genug ist, um jede Form einzuordnen, eine Stille, die
 nicht leer ist, sondern lebendig. Dort entsteht Wahrheit. Dort
 entsteht Reife. Dort entsteht Zukunft. Das stille Zentrum ist die
 Quelle des gesamten Raumes.
+
+## Querverweise
+- [← Voriges Kapitel](<59 Kulturelle Plastizität – Wie eine Kultur sich erneuern kann, ohne zu zerbrechen.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

@@ -60,3 +60,8 @@ Veränderung, sondern durch Veränderung. Stabilität entsteht nicht
 durch Starrheit, sondern durch Klarheit. Ein lebendiges System ist
 beweglich, klar, tief, geordnet, offen, wach und weit. Aus solchen
 Systemen entsteht kulturelle Evolution.
+
+## Querverweise
+- [← Voriges Kapitel](<48 Lineare Systeme – Wie Metaphern zu Architektur werden.md>)
+- [Nächstes Kapitel →](<50 Die Seele der Architektur – Was ein System von innen trägt.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

@@ -71,3 +71,8 @@ Feld, das Wissen vertieft. Hinter jedem klaren Gedanken steht ein
 Raum, der ihn möglich gemacht hat. Hinter jedem reifen Kollektiv steht
 ein System, das Bewusstsein stärkt. Gemeinsames Lernen ist das
 sichtbarste Zeichen einer bewussten Gemeinschaft.
+
+## Querverweise
+- [← Voriges Kapitel](<53 Kollektive Intuition – Wie Gruppen Entscheidungen treffen können, die tragen.md>)
+- [Nächstes Kapitel →](<55 Die zyklische Erkenntnispraxis – Wie ein Kollektiv kontinuierlich klarer wird.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

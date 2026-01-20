@@ -40,3 +40,8 @@ einfacher wird, sondern weil du richtiger wirst. Ein stimmiger Weg
 trägt die Kraft in sich, die du brauchst, um ihn zu gehen. Nur der
 unstimmige Weg muss ständig von dir getragen werden. Das ist der
 Unterschied.
+
+## Querverweise
+- [← Voriges Kapitel](<11 Die Weite im Anderen – Warum Klarheit Beziehungen verändert.md>)
+- [Nächstes Kapitel →](<13 Der stille Fortschritt – Warum wahre Veränderung unscheinbar beginnt.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

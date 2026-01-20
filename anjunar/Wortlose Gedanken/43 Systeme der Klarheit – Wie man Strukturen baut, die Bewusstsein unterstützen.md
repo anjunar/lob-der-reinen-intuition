@@ -77,3 +77,8 @@ was vorher nur im einzelnen Menschen existierte.
 
 Das nächste Kapitel führt diese Systeme in die digitale Welt und
 beschreibt, wie man eine Plattform baut, die Bewusstsein trägt.
+
+## Querverweise
+- [← Voriges Kapitel](<42 Architektur der Klarheit – Wie man Räume schafft, in denen Wahrheit gedeiht.md>)
+- [Nächstes Kapitel →](<44 Digitale Bewusstseinsräume – Wie Technologie Klarheit unterstützen kann.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

@@ -46,3 +46,8 @@ Ekstase. Nur eine schlichte, tiefe Gewissheit. Und genau das ist der
 Grund, warum Intuition nie als Frage erscheint. Sie fragt nicht, weil
 sie nicht zweifelt. Der Zweifel kommt erst später — vom Denken. Aber
 bis dahin hat die Linie schon gesprochen. Leise. Unverhandelbar. Wahr.
+
+## Querverweise
+- [← Voriges Kapitel](<04 Die innere Weite – Warum Klarheit nicht aus Tiefe entsteht.md>)
+- [Nächstes Kapitel →](<06 Stille als Ursprung – Warum Klarheit aus Nicht-Handeln entsteht.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

@@ -52,3 +52,8 @@ Mut brauchte, wird zur Natürlichkeit. Was vorher schwer war, wird
 leicht. Was vorher unklar war, wird eindeutig. Man lebt nicht mehr
 gegen sich. Man lebt mit sich. Das ist Integration. Nicht mehr — und
 vor allem nicht weniger.
+
+## Querverweise
+- [← Voriges Kapitel](<09 Der Verlust – Warum man manchmal zuerst zerfällt, bevor man wahr wird.md>)
+- [Nächstes Kapitel →](<11 Die Weite im Anderen – Warum Klarheit Beziehungen verändert.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

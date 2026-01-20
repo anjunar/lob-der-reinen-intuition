@@ -48,3 +48,8 @@ Voraussetzung für echtes Sehen. Und wer mehr sieht, lebt anders:
 ruhiger, eindeutiger, weniger getrieben, aber viel wirkungsvoller.
 Denn Klarheit wirkt nicht durch Lautstärke, sondern durch Richtung.
 Und Richtung entsteht in Raum.
+
+## Querverweise
+- [← Voriges Kapitel](<14 Das innere Licht – Warum Erkenntnis nicht gesucht werden muss.md>)
+- [Nächstes Kapitel →](<16 Das zweite Bewusstsein – Wie man gleichzeitig fühlt und sieht.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

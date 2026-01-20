@@ -76,3 +76,8 @@ schützt, nährt, formt, weitet und ordnet. Ein System ohne Seele
 verwirrt, fragmentiert, engt ein, überfordert und zerfällt. Darum ist
 die Seele kein mystischer Zusatz, sondern die Grundlage für jede Form
 von kultureller Evolution.
+
+## Querverweise
+- [← Voriges Kapitel](<49 Mitwachsende Systeme – Wie Architektur lebendig bleibt.md>)
+- [Nächstes Kapitel →](<51 Der Einfluss der Architektur – Wie Systeme Bewusstsein formen.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

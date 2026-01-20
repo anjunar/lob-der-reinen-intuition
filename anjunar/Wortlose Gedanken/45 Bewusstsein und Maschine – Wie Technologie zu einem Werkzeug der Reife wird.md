@@ -67,3 +67,8 @@ reift die Welt mit.
 
 Das nächste Kapitel führt diese gemeinsame Entwicklung in den Bereich
 des kreativen Ausdrucks.
+
+## Querverweise
+- [← Voriges Kapitel](<44 Digitale Bewusstseinsräume – Wie Technologie Klarheit unterstützen kann.md>)
+- [Nächstes Kapitel →](<46 Kreative Intelligenz – Wie Mensch und Maschine gemeinsam Neues hervorbringen.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

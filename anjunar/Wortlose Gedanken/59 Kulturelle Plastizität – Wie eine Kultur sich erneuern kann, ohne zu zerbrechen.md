@@ -71,3 +71,8 @@ Kulturelle Plastizität bedeutet nicht Beliebigkeit oder Chaos. Es
 bedeutet Wandel ohne Verlust, Wachstum ohne Zerfall, Erneuerung ohne
 Krise. Eine Kultur, die sich stetig erneuert, ist eine Kultur, die nie
 stirbt.
+
+## Querverweise
+- [← Voriges Kapitel](<58 Kulturelle Emergenz – Wie ein System eine eigene Kultur hervorbringt.md>)
+- [Nächstes Kapitel →](<60 Das stille Zentrum – Warum jeder große Raum eine innere Stille braucht.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)
