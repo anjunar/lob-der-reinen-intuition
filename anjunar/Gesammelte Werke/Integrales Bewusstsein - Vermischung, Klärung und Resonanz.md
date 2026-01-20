@@ -1,3 +1,5 @@
+# Integrales Bewusstsein: Vermischung, Klärung und Resonanz
+
 In jedem Menschen wirken zwei Kräfte zugleich: das individuelle Bewusstsein und das universelle Bewusstsein. Das individuelle Bewusstsein ist das persönliche Ich – geprägt von Erfahrungen, Erinnerungen und Gewohnheiten. Es ist der Ort der Wahrnehmung, der Reaktionen und der Entscheidungen, die wir im Alltag treffen. Das universelle Bewusstsein hingegen ist grenzenlos, zeitlos und unpersönlich. Es ist die Quelle aller Impulse, aller Möglichkeiten, aller Energie, die das Leben trägt.
 
 Wenn diese beiden Bewusstseinsformen zusammentreffen, entsteht etwas Neues: ein intermediäres Bewusstsein. Es ist nicht einfach die Summe von Individuellem und Universellem, sondern ein dynamischer Raum, in dem Impulse und Gedanken aufsteigen. Diese Gedanken können klar sein, sie können kreativ sein, oder sie können durch alte Muster und Ego-Mechanismen getrübt sein.
