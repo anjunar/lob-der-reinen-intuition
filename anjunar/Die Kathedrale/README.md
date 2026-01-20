@@ -9,6 +9,3 @@
 7. [Das Hochchor](07%20Das%20Hochchor.md)
 8. [Die Vierung](08%20Die%20Vierung.md)
 9. [Die Apsis](09%20Die%20Apsis.md)
-
----
-[Weiter: Einleitung →](01%20Einleitung.md)
