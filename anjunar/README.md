@@ -1,5 +1,7 @@
 # Anjunar - Lob der reinen Intuition
 
+![Bild](Bild.png)
+
 ## Inhaltsverzeichnis
 
 - [Werk 1. Wortlose Gedanken](<Wortlose%20Gedanken/README.md>)
