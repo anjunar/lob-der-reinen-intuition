@@ -12,7 +12,6 @@ Dieses README bietet eine thematische Navigation durch die Sammlung. Jede Positi
 - [Gesellschaft, Politik & Zukunft](#gesellschaft-politik--zukunft)
 - [Gleichnisse, Sprache & Mythos](#gleichnisse-sprache--mythos)
 - [Rituale & Praxis](#rituale--praxis)
-- [Bilder & Illustrationen](#bilder--illustrationen)
 
 ---
 
@@ -291,25 +290,6 @@ Dieses Ritual beschreibt eine Körper- und Geisteshaltung, die sich für Führun
 
 ### [Ritual für die Inspiration](<./Ritual%20f%C3%BCr%20die%20Inspiration.md>)
 Der Text präsentiert eine kleine Ritualpraxis, die Inspiration als Haltung kultiviert, nicht als Zufallsblitz. Er zeigt, wie Aufmerksamkeit, Offenheit und innere Ordnung kreative Impulse begünstigen. Dadurch wird Inspiration zu etwas, das man bewusst vorbereitet, statt nur zu erwarten. Die Schrift richtet sich an Menschen, die schöpferisch arbeiten und eine sanfte, spirituelle Struktur für ihre Kreativität suchen.
-
----
-
-## Bilder & Illustrationen
-
-### [Die Entstehung des Univerums (Illustration)](<./Die%20Entstehung%20des%20Univerums.jpg>)
-Diese Illustration begleitet den Text „Die Entstehung des Universums“ und bietet eine visuelle Verdichtung der kosmologischen Idee. Das Bild ist als kontemplative Ergänzung gedacht, nicht als Erklärung. Es lädt dazu ein, den Ursprung nicht nur begrifflich, sondern auch bildlich zu erfassen. Die Darstellung bietet eine eigenständige Atmosphäre, die beim Lesen oder Nachdenken als visueller Anker dienen kann.
-
-### [Endlichkeit oder Unendlichkeit (Illustration)](<./Endlichkeit%20oder%20Unendlichkeit.jpg>)
-Die Illustration greift das Thema von Begrenzung und Weite auf und stellt die Spannung zwischen Endlichkeit und Unendlichkeit bildlich dar. Sie begleitet den gleichnamigen Text und dient als visueller Einstieg in die Frage nach Maß, Grenze und Transzendenz. Das Bild lädt zur stillen Betrachtung ein und kann als meditative Ergänzung zum Text genutzt werden, um die Frage nicht nur rational, sondern auch intuitiv zu bewegen.
-
-### [Kindness eine Insel im Ozean des Wahnsinns (Illustration)](<./Kindness%20eine%20Insel%20im%20Ozean%20des%20Wahnsinns.jpg>)
-Diese Illustration unterstützt das Motiv von Freundlichkeit als Insel im Chaos. Sie dient als visuelle Verdichtung der Idee, dass Güte ein stabiler Ort sein kann, auch wenn die Umgebung turbulent ist. Das Bild richtet sich an die Gefühlsebene und kann beim Lesen des Textes als Resonanzfläche wirken. Es bietet eine ruhige, empathische Bildsprache, die das Thema Mitgefühl unterstreicht.
-
-### [Licht und Schatten und das halten der Spannung (Illustration)](<./Licht%20und%20Schatten%20und%20das%20halten%20der%20Spannung.jpg>)
-Die Illustration visualisiert die Spannung zwischen Licht und Schatten, die im gleichnamigen Text thematisiert wird. Sie ist als kontemplatives Gegenüber gedacht, das das innere Ringen mit Ambivalenz sichtbar macht. Das Bild unterstützt die Idee, dass beide Pole zugleich vorhanden sind und gehalten werden müssen. Als visuelle Ergänzung kann es helfen, die emotionale Tiefe des Themas intuitiv zu erfassen.
-
-### [Psychisches Gleichgewicht (Illustration)](<./Psychisches%20Gleichgewicht.jpg>)
-Diese Illustration begleitet den Text über psychisches Gleichgewicht und setzt das Thema der inneren Balance bildlich um. Sie bietet einen visuellen Einstieg in die Frage, wie Stabilität, Unsicherheit und Selbstberuhigung zusammenhängen. Das Bild kann als meditativer Fokus dienen, um die dort beschriebenen Spannungen nachzuempfinden. Es unterstützt den Text, indem es die emotionale Dimension ohne Worte erfahrbar macht.
 
 ---
 
