@@ -1,4 +1,6 @@
-# Systeme der Klarheit – Wie man Strukturen baut, die Bewusstsein unterstützen
+Systeme der Klarheit – Wie man Strukturen baut, die Bewusstsein
+unterstützen
+===============================================================
 
 Ein klarer Mensch kann in einem schlechten System nicht klar arbeiten.
 Ein schlechtes System macht selbst klare Menschen unklar. Umgekehrt:
@@ -79,6 +81,7 @@ Das nächste Kapitel führt diese Systeme in die digitale Welt und
 beschreibt, wie man eine Plattform baut, die Bewusstsein trägt.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<42 Architektur der Klarheit – Wie man Räume schafft, in denen Wahrheit gedeiht.md>)
 - [Nächstes Kapitel →](<44 Digitale Bewusstseinsräume – Wie Technologie Klarheit unterstützen kann.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

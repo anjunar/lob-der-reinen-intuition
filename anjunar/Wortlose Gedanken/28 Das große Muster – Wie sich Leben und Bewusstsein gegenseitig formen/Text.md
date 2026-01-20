@@ -67,6 +67,7 @@ nächste natürliche Schritt führt in Kapitel 29 — ein klar
 strukturiertes, sehr praktisches Kapitel.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<27 Der stille Fokus – Wie Konzentration ohne Anstrengung entsteht.md>)
 - [Nächstes Kapitel →](<29 Die drei Wege – Wie Menschen das Leben gestalten. Reaktion, Richtung oder Resonanz.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

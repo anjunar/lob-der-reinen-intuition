@@ -68,6 +68,7 @@ Raum: Es geht um Identität — nicht als Psychologie, sondern als
 Bewusstseinsform.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<32 Das Gefüge – Wie Bewusstsein, Leben und Form eine einzige Struktur bilden.md>)
 - [Nächstes Kapitel →](<34 Die transparente Identität – Wer du bist, wenn du nichts festhältst.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

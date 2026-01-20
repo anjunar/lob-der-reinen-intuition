@@ -1,4 +1,5 @@
-# Das stille Zentrum – Warum jeder große Raum eine innere Stille braucht
+Das stille Zentrum – Warum jeder große Raum eine innere Stille braucht
+======================================================================
 
 Jedes System, das wachsen soll, das tragen soll, das bewusst wirken
 soll, braucht einen Punkt in seinem Inneren, der nicht bewegt wird.
@@ -81,5 +82,6 @@ entsteht Reife. Dort entsteht Zukunft. Das stille Zentrum ist die
 Quelle des gesamten Raumes.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<58 Kulturelle Plastizität – Wie eine Kultur sich erneuern kann, ohne zu zerbrechen.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

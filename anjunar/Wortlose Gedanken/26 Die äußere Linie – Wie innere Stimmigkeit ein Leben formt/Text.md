@@ -51,6 +51,7 @@ das Leben mit dir geht, wenn du aufhörst, es zu hindern. Das nächste
 Kapitel erweitert das Bild und macht es noch konkreter.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<25 Der klare Schritt – Wie Handlung aus Bewusstsein entsteht.md>)
 - [Nächstes Kapitel →](<27 Der stille Fokus – Wie Konzentration ohne Anstrengung entsteht.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

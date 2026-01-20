@@ -1,4 +1,6 @@
-# Jenseits des Gefühls – Wie man echte Intuition von Emotion unterscheidet
+Jenseits des Gefühls – Wie man echte Intuition von Emotion
+unterscheidet
+==========================================================
 
 Es gibt einen Irrtum, der fast alle Menschen davon abhält, ihre
 Intuition klar zu hören: Sie verwechseln sie mit Emotion. Beide fühlen
@@ -88,6 +90,7 @@ Leben hat ein gemeinsames Merkmal: Er wartet auf dich, ohne dich zu
 drängen. Und nur du kannst ihn gehen.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<02 Die stille Entscheidung – Wie Intuition im Alltag wirkt.md>)
 - [Nächstes Kapitel →](<04 Die innere Weite – Warum Klarheit nicht aus Tiefe entsteht.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

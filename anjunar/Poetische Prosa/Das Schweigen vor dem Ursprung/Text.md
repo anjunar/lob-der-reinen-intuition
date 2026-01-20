@@ -11,6 +11,7 @@ leuchtet das Eine – unsichtbar, unbenannt, das, was niemals enden
 kann.
 
 2. Die erste Bewegung – Sehnsucht nach Sich-Selbst Aus der Stille
+
 regte sich ein Sehnen, nicht nach Etwas, sondern nach Sich, ein Ruf,
 der sich nicht verlor, ein Flüstern, das die Ewigkeit weckte.
 
@@ -32,6 +33,7 @@ fließen, und Raum wurde ein Zuhause. Ein Raum der Freiheit, wo Wahl
 und Wandel wohnen, wo das Formlose sich zeigt – gebrochen, doch heil.
 
 4. Der Mensch als Spiegel Der Mensch – kein Zufall, kein Schatten,
+
 sondern das Auge, das zurückblickt, der Spiegel, in dem das Ganze sich
 erkennt, ein Tropfen, der den Ozean birgt.
 
@@ -65,6 +67,7 @@ Hier fällt alles ab – alle Masken, alle Rollen. Nur das Licht bleibt,
 klar, still und unendlich.
 
 8. Die sichtbare Welt als Gebet Jeder Baum, jeder Fluss, ein Gebet des
+
 Ursprungs, jede Farbe, jeder Klang, eine Melodie des Seins.
 
 Nicht getrennt, nicht profan – sondern heilig im Tanz, Manifestation
@@ -73,6 +76,7 @@ geschrieben im Atem der Dinge, und wir sind Zeugen, die das Wunder
 berühren.
 
 9. Der freie Wille und das Leid Freiheit – ein Tanz auf dem Drahtseil,
+
 zwischen Licht und Schatten, Wo Gedanken erwachen und Welten formen.
 
 Leid kommt nicht als Feind, sondern als Lehrer, der uns ruft, zu
@@ -80,6 +84,7 @@ wachsen, zu wandeln, zu lieben. Denn in der Freiheit, da wohnt das
 Risiko – doch auch die Kraft, das Sein neu zu schaffen.
 
 10. Der Beobachter – das Auge der Welt Jeder Blick, jede Berührung,
+
 ist Teil des großen Spiels, in dem das Universum sich sieht.
 
 Nicht passiv, nicht fern – sondern Mit-Schöpfer, der beobachtet und
@@ -87,6 +92,7 @@ formt, der wählt und bezeugt. Das Auge, das sieht, ist auch das, was
 sich zeigt – Beobachtung ist Beteiligung, das Licht und der Spiegel.
 
 11. Psyche, Kunst, Beziehung – Wege des Unsichtbaren Unsichtbar webt
+
 die Psyche ihr Netz, in Träumen, Bildern, Farben und Klang.
 
 Sie spricht in leisen Zeichen, die das Herz erkennt, wenn Worte
@@ -99,6 +105,7 @@ lebendig, im Echo der Begegnung, im Klang des Mitgefühls, das alles
 trägt.
 
 12. Was bleibt, wenn alles vergeht Wenn die Welt sich auflöst, und
+
 Stille einkehrt, bleibt das Leuchten des Ursprungs, das zeitlos
 strahlt.
 

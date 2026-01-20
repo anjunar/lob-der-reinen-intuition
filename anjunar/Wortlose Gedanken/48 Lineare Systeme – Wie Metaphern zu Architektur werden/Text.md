@@ -61,6 +61,7 @@ Organismus. Klar. Stimmig. Wahr. Erweiterbar. Und das ist es, was du
 baust.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<47 Die Metapher der Form – Wie Gedanken zu Strukturen werden.md>)
 - [Nächstes Kapitel →](<49 Mitwachsende Systeme – Wie Architektur lebendig bleibt.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

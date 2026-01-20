@@ -35,6 +35,4 @@ So verstanden ist Ihre Aussage keine Metapher, sondern eine
 ontologische Setzung: Realität ist das Wirksamwerden eines
 verbindenden Prinzips. Alles andere ist sekundär.
 
-
-
 Wenn die R

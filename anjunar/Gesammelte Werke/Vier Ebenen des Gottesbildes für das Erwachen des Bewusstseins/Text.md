@@ -1,4 +1,5 @@
 # Vier Ebenen des Gottesbildes für das Erwachen des Bewusstseins:
+
 Gott als Vater in den Wolken – Das Bild des Kindes: ein liebevoller,
 aber äußerer Gott, der über die Welt wacht. – Gott erscheint getrennt
 von der Welt, als eine Art sicherer Hafen oder Autorität. Gott als

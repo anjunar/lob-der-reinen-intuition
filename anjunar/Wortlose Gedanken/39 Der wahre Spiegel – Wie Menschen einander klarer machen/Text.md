@@ -66,6 +66,7 @@ Das nächste Kapitel (Kapitel 40) führt diese innere Wahrheit in die
 Wirkung in Systemen und Gruppen.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<38 Tiefe Verbindung – Wie Beziehung entsteht, wenn nichts erzwingt.md>)
 - [Nächstes Kapitel →](<40 Das Feld der Gemeinschaft – Wie kollektive Bewusstseinsräume entstehen.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

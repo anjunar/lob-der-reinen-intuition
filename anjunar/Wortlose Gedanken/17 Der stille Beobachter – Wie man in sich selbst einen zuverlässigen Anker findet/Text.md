@@ -1,4 +1,6 @@
-# Der stille Beobachter – Wie man in sich selbst einen zuverlässigen Anker findet
+Der stille Beobachter – Wie man in sich selbst einen zuverlässigen
+Anker findet
+==================================================================
 
 Es gibt in jedem Menschen eine Instanz, die nicht denkt, nicht fühlt,
 nicht reagiert, nicht bewertet, sondern nur sieht. Eine Instanz, die
@@ -61,6 +63,7 @@ einzige Punkt im Inneren, der nie zerbricht. Deshalb ist er dein
 Anker.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<16 Das zweite Bewusstsein – Wie man gleichzeitig fühlt und sieht.md>)
 - [Nächstes Kapitel →](<18 Die wahre Ruhe – Warum Frieden nicht aus Kontrolle kommt, sondern aus Erkennen.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

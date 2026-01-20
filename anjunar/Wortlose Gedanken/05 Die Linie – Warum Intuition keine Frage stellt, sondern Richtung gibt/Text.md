@@ -1,4 +1,5 @@
-# Die Linie – Warum Intuition keine Frage stellt, sondern Richtung gibt
+Die Linie – Warum Intuition keine Frage stellt, sondern Richtung gibt
+=====================================================================
 
 Es gibt eine Bewegung im Menschen, die älter ist als jedes Konzept und
 feiner als jeder Gedanke: die Linie. Man spürt sie, bevor man sie
@@ -48,6 +49,7 @@ sie nicht zweifelt. Der Zweifel kommt erst später — vom Denken. Aber
 bis dahin hat die Linie schon gesprochen. Leise. Unverhandelbar. Wahr.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<04 Die innere Weite – Warum Klarheit nicht aus Tiefe entsteht.md>)
 - [Nächstes Kapitel →](<06 Stille als Ursprung – Warum Klarheit aus Nicht-Handeln entsteht.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

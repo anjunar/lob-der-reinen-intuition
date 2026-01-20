@@ -1,4 +1,6 @@
-# Das natürliche Erkennen – Warum Wahrheit nicht gesucht, sondern erinnert wird
+Das natürliche Erkennen – Warum Wahrheit nicht gesucht, sondern
+erinnert wird
+===============================================================
 
 Es gibt Momente im Menschen, in denen eine Wahrheit auftaucht und sich
 anfühlt wie: „Natürlich.“ „Das wusste ich irgendwie schon.“ „Warum
@@ -48,6 +50,7 @@ Formlose erinnert dich. Du erinnerst dich. Und im Erinnern wird alles
 einfach.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<20 Der verborgene Ursprung – Wie das Formlose das Denken trägt.md>)
 - [Nächstes Kapitel →](<22 Der Arche-Punkt – Wie Bewusstsein aus Einheit Form annimmt.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

@@ -58,6 +58,7 @@ bleibt, weil es im Ursprung ruht. Das nächste Kapitel ist sehr schön,
 fast poetisch in seiner Einfachheit:
 
 ## Querverweise
+
 - [← Voriges Kapitel](<33 Der lange Bogen – Wie Bewusstsein sich über Jahre formt.md>)
 - [Nächstes Kapitel →](<35 Das Wahre Selbst – Der Punkt, an dem Bewusstsein nicht mehr gesucht werden muss.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

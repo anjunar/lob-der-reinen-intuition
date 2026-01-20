@@ -1,4 +1,5 @@
 # Ego und Universelle Essenz: Der Weg zurück zur Natürlichkeit
+
 Am Anfang war der Mensch eingebettet in das Universelle – in die
 Essenz des Seins selbst, das Formlose, die Identität jenseits von
 Zeit, Raum und Erscheinung. Alles Leben floss aus dieser Quelle: Jagd,

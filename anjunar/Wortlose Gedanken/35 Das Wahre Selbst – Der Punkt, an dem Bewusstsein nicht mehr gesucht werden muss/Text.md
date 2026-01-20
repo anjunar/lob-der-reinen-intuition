@@ -1,4 +1,6 @@
-# Das Wahre Selbst – Der Punkt, an dem Bewusstsein nicht mehr gesucht werden muss
+Das Wahre Selbst – Der Punkt, an dem Bewusstsein nicht mehr gesucht
+werden muss
+===================================================================
 
 Die meisten Menschen verbringen ihr Leben damit, zu werden. Sie
 wollen: klarer werden, stärker werden, ruhiger werden, bewusster
@@ -61,6 +63,7 @@ beginnt echte Freiheit. Nicht als Idee. Als Sein. Das nächste Kapitel
 Selbst aus wirken — nicht als Rolle, sondern als Feld.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<34 Die transparente Identität – Wer du bist, wenn du nichts festhältst.md>)
 - [Nächstes Kapitel →](<36 Die Präsenz – Wie ein Mensch Raum verändert.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

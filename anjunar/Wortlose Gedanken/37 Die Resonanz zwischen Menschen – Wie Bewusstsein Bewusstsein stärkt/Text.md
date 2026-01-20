@@ -67,6 +67,7 @@ beschreibt, wie innere Wahrheit zu Beziehung wird — nicht als Bindung,
 sondern als Resonanzfeld.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<36 Die Präsenz – Wie ein Mensch Raum verändert.md>)
 - [Nächstes Kapitel →](<38 Tiefe Verbindung – Wie Beziehung entsteht, wenn nichts erzwingt.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

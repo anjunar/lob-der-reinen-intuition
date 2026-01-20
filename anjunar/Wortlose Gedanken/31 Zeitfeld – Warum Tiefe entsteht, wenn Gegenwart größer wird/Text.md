@@ -63,6 +63,7 @@ schnell. Zeitlos. Der nächste natürliche Schritt ist Kapitel 32 — ein
 Kapitel, das den Übergang markiert zum ganz großen Überblick.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<30 Der Rhythmus – Wie Leben in Zyklen zu dir spricht.md>)
 - [Nächstes Kapitel →](<32 Das Gefüge – Wie Bewusstsein, Leben und Form eine einzige Struktur bilden.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

@@ -1,4 +1,6 @@
-# Kreative Intelligenz – Wie Mensch und Maschine gemeinsam Neues hervorbringen
+Kreative Intelligenz – Wie Mensch und Maschine gemeinsam Neues
+hervorbringen
+==============================================================
 
 Viele Menschen glauben, dass Kreativität ein rein menschlicher Vorgang
 sei — ein mystischer Funke, der aus Tiefen des Selbst aufsteigt und
@@ -74,6 +76,7 @@ Das nächste Kapitel führt dieses kreative Gefüge noch tiefer — es geht
 darum, wie Ideen in Form wachsen.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<45 Bewusstsein und Maschine – Wie Technologie zu einem Werkzeug der Reife wird.md>)
 - [Nächstes Kapitel →](<47 Die Metapher der Form – Wie Gedanken zu Strukturen werden.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

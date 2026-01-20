@@ -55,6 +55,7 @@ Arche-Punkt entsteht die Form, die zu dir gehört. Und je näher du
 bist, desto wahrer wird dein Weg.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<21 Das natürliche Erkennen – Warum Wahrheit nicht gesucht, sondern erinnert wird.md>)
 - [Nächstes Kapitel →](<23 Das stille Werden – Wie Form ohne Zwang entsteht.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

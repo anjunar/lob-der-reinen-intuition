@@ -87,6 +87,7 @@ die Linien trägt, sondern ihren Sinn offenbart. Dieser Raum heißt die
 Apsis.
 
 ---
+
 [← Das Hochchor](07%20Das%20Hochchor.md) |
-[Inhaltsverzeichnis](01%20Einleitung.md) |
-[Weiter: Die Apsis →](09%20Die%20Apsis.md)
+[Inhaltsverzeichnis](01%20Einleitung.md) | [Weiter: Die Apsis
+→](09%20Die%20Apsis.md)

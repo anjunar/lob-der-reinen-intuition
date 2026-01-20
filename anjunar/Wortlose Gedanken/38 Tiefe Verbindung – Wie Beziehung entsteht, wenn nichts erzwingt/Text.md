@@ -58,6 +58,7 @@ Kontakt zu einer Art inneren Spiegel wird: Kapitel 39 Der wahre
 Spiegel – Wie Menschen einander klarer machen.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<37 Die Resonanz zwischen Menschen – Wie Bewusstsein Bewusstsein stärkt.md>)
 - [Nächstes Kapitel →](<39 Der wahre Spiegel – Wie Menschen einander klarer machen.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

@@ -1,4 +1,5 @@
 # Die zwei Höhen des Selbst – Vom Erwachen zur Integration
+
 Spirituelles Erwachen beginnt oft mit einem Bruch: Ein Mensch erkennt,
 dass er nicht seine Gedanken, nicht seine Geschichten, nicht sein Ego
 ist. Dieser Moment der Klarheit ist, wie Eckhart Tolle es beschreibt,

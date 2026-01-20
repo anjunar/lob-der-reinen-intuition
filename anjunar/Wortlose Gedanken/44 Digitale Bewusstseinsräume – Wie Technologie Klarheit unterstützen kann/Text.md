@@ -1,4 +1,6 @@
-# Digitale Bewusstseinsräume – Wie Technologie Klarheit unterstützen kann
+Digitale Bewusstseinsräume – Wie Technologie Klarheit unterstützen
+kann
+==================================================================
 
 Die digitale Welt ist voller Räume. Doch fast alle verstärken Enge,
 Reaktivität und Identität: Kommentarspalten, Social Media, Instant-
@@ -70,6 +72,7 @@ Technologie und Geist: Kapitel 45, Bewusstsein und Maschine – Wie
 Technologie zu einem Werkzeug der Reife wird.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<43 Systeme der Klarheit – Wie man Strukturen baut, die Bewusstsein unterstützen.md>)
 - [Nächstes Kapitel →](<45 Bewusstsein und Maschine – Wie Technologie zu einem Werkzeug der Reife wird.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

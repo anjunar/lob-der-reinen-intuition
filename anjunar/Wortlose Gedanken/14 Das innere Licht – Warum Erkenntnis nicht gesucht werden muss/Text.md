@@ -46,6 +46,7 @@ unverkennbar, als wär es nie weg gewesen. Denn Licht kann man nicht
 erzwingen. Man kann nur die Dunkelheit nicht mehr füttern.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<13 Der stille Fortschritt – Warum wahre Veränderung unscheinbar beginnt.md>)
 - [Nächstes Kapitel →](<15 Der innere Raum – Warum man mehr sieht, wenn man weniger hält.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

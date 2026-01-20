@@ -1,4 +1,6 @@
-# Die drei Wege – Wie Menschen das Leben gestalten: Reaktion, Richtung oder Resonanz
+Die drei Wege – Wie Menschen das Leben gestalten: Reaktion, Richtung
+oder Resonanz
+====================================================================
 
 Es gibt nur drei grundlegende Weisen, wie ein Mensch sein Leben führt.
 Nicht tausend, nicht hundert, nicht zwanzig. Drei. Jeder Mensch bewegt
@@ -55,6 +57,7 @@ Aber er verändert alles. Der nächste natürliche Schritt geht tiefer in
 die äußere Welt, aber bleibt mit dem Inneren verwoben.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<28 Das große Muster – Wie sich Leben und Bewusstsein gegenseitig formen.md>)
 - [Nächstes Kapitel →](<30 Der Rhythmus – Wie Leben in Zyklen zu dir spricht.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

@@ -1,4 +1,5 @@
-# Das Feld der Gemeinschaft – Wie kollektive Bewusstseinsräume entstehen
+Das Feld der Gemeinschaft – Wie kollektive Bewusstseinsräume entstehen
+======================================================================
 
 Gemeinschaft ist mehr als eine Gruppe von Menschen. Sie ist ein Feld.
 Ein Feld, das stärker ist als die Summe seiner Individuen. Ein Feld,
@@ -76,6 +77,7 @@ Das nächste Kapitel (Kapitel 41) führt aus diesem kollektiven Raum in
 die Frage, wie Wahrheit in Gruppen stabil bleibt.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<39 Der wahre Spiegel – Wie Menschen einander klarer machen.md>)
 - [Nächstes Kapitel →](<41 Gemeinschaftliche Wahrheit – Wie ein Kollektiv klar bleibt.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

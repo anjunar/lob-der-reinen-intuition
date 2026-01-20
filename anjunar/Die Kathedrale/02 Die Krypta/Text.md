@@ -67,5 +67,6 @@ Bewusstseins errichten will. Und genau hier, in dieser stillen,
 unbequemen Tiefe, beginnt der Aufstieg.
 
 ---
-[← Inhaltsverzeichnis](01%20Einleitung.md) |
-[Weiter: Die Pfeiler →](03%20Die%20Pfeiler.md)
+
+[← Inhaltsverzeichnis](01%20Einleitung.md) | [Weiter: Die Pfeiler
+→](03%20Die%20Pfeiler.md)

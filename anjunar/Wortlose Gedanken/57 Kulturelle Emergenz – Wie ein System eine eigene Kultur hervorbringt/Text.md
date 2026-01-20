@@ -73,6 +73,7 @@ der Gemeinschaft — geboren aus der Architektur, getragen von der
 Atmosphäre, gelebt in den Formen.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<56 Selbstorganisierte Ordnung – Wie Klarheit ohne Führung entsteht.md>)
 - [Nächstes Kapitel →](<58 Kulturelle Plastizität – Wie eine Kultur sich erneuern kann, ohne zu zerbrechen.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

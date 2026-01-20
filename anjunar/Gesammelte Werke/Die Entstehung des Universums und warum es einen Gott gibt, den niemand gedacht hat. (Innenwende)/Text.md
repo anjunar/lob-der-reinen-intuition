@@ -1,4 +1,6 @@
-# Die Entstehung des Universums und warum es einen Gott gibt, den niemand gedacht hat. (Innenwende)
+Die Entstehung des Universums und warum es einen Gott gibt, den
+niemand gedacht hat. (Innenwende)
+===============================================================
 
 Die Außenwende hat gezeigt, wie Bewusstsein möglich wird: vom
 Absoluten als Möglichkeitsraum über Mechanik, Leben und verkörpertes

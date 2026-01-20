@@ -1,4 +1,5 @@
 # Von den Schlafenden im Reich Gottes
+
 Es heißt, jenseits aller Formen, jenseits selbst des Bewusstseins,
 existiere ein Reich, das nicht mehr Welt ist – und nicht mehr Idee –,
 sondern reine Gegenwart Gottes. Nicht als Person, nicht als Bild,

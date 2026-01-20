@@ -1,4 +1,6 @@
-# Die Entstehung des Universums und warum es einen Gott gibt, den niemand gedacht hat. (Außenwende)
+Die Entstehung des Universums und warum es einen Gott gibt, den
+niemand gedacht hat. (Außenwende)
+===============================================================
 
 Am Anfang steht nicht ein zeitlicher Anfang. Es gibt kein „zuerst“ und
 kein „danach“, keinen Moment, in dem etwas noch nicht war und später

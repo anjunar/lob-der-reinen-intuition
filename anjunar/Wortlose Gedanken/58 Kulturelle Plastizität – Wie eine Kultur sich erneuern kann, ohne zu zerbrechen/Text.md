@@ -1,4 +1,6 @@
-# Kulturelle Plastizität – Wie eine Kultur sich erneuern kann, ohne zu zerbrechen
+Kulturelle Plastizität – Wie eine Kultur sich erneuern kann, ohne zu
+zerbrechen
+====================================================================
 
 Die größte Gefahr jeder Kultur ist nicht Konflikt, nicht Chaos, nicht
 neue Zugänge. Die größte Gefahr ist Erstarrung. Wenn Kultur zu einer
@@ -73,6 +75,7 @@ Krise. Eine Kultur, die sich stetig erneuert, ist eine Kultur, die nie
 stirbt.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<57 Kulturelle Emergenz – Wie ein System eine eigene Kultur hervorbringt.md>)
 - [Nächstes Kapitel →](<59 Das stille Zentrum – Warum jeder große Raum eine innere Stille braucht.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

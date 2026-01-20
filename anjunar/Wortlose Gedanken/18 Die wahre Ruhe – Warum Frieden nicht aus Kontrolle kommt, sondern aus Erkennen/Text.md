@@ -1,4 +1,6 @@
-# Die wahre Ruhe – Warum Frieden nicht aus Kontrolle kommt, sondern aus Erkennen
+Die wahre Ruhe – Warum Frieden nicht aus Kontrolle kommt, sondern aus
+Erkennen
+=====================================================================
 
 Viele Menschen suchen Ruhe, indem sie ihr Leben ordnen wollen: weniger
 Stress, weniger Konflikte, weniger Erwartungen, weniger Verantwortung.
@@ -41,6 +43,7 @@ wirklich bist, kann von keinem Gedanken und keinem Gefühl berührt
 werden. Das ist der Ursprung aller inneren Ruhe.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<17 Der stille Beobachter – Wie man in sich selbst einen zuverlässigen Anker findet.md>)
 - [Nächstes Kapitel →](<19 Die natürliche Bewegung – Wie Leben ohne Druck entsteht.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

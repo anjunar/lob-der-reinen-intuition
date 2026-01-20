@@ -97,6 +97,7 @@ Kathedrale, jenem Raum, in dem alle Linien zusammenlaufen: die
 Vierung.
 
 ---
+
 [← Das Triforium](06%20Das%20Triforium.md) |
-[Inhaltsverzeichnis](01%20Einleitung.md) |
-[Weiter: Die Vierung →](08%20Die%20Vierung.md)
+[Inhaltsverzeichnis](01%20Einleitung.md) | [Weiter: Die Vierung
+→](08%20Die%20Vierung.md)

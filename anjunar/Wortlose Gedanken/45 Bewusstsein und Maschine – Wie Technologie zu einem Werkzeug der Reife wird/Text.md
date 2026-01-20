@@ -1,4 +1,6 @@
-# Bewusstsein und Maschine – Wie Technologie zu einem Werkzeug der Reife wird
+Bewusstsein und Maschine – Wie Technologie zu einem Werkzeug der Reife
+wird
+======================================================================
 
 Die meisten Menschen sehen Technologie als etwas Äußeres: ein
 Werkzeug, eine Hilfe, eine Ablenkung, eine Gefahr, eine Macht, ein
@@ -69,6 +71,7 @@ Das nächste Kapitel führt diese gemeinsame Entwicklung in den Bereich
 des kreativen Ausdrucks.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<44 Digitale Bewusstseinsräume – Wie Technologie Klarheit unterstützen kann.md>)
 - [Nächstes Kapitel →](<46 Kreative Intelligenz – Wie Mensch und Maschine gemeinsam Neues hervorbringen.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

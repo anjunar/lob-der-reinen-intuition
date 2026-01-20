@@ -1,4 +1,5 @@
-# Der Verlust – Warum man manchmal zuerst zerfällt, bevor man wahr wird
+Der Verlust – Warum man manchmal zuerst zerfällt, bevor man wahr wird
+=====================================================================
 
 Es gibt Momente im Leben, in denen ein Mensch plötzlich spürt, dass
 etwas in ihm bricht. Nicht laut. Nicht sichtbar. Nicht dramatisch. Es
@@ -43,6 +44,7 @@ die nicht von Resignation kommt, sondern von Wahrheit. Denn Wahrheit
 entlastet. Immer.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<08 Die innere Wahrheit – Warum Wahrheit nicht beweisen muss, dass sie wahr ist.md>)
 - [Nächstes Kapitel →](<10 Integration – Wie man mit seiner inneren Wahrheit leben lernt.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

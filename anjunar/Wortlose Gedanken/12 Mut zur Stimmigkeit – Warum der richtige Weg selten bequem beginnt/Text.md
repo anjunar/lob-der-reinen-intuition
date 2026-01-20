@@ -42,6 +42,7 @@ unstimmige Weg muss ständig von dir getragen werden. Das ist der
 Unterschied.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<11 Die Weite im Anderen – Warum Klarheit Beziehungen verändert.md>)
 - [Nächstes Kapitel →](<13 Der stille Fortschritt – Warum wahre Veränderung unscheinbar beginnt.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

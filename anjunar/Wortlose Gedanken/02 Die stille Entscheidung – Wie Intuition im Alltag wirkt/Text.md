@@ -164,6 +164,7 @@ der immer nach Norden zeigt, auch wenn du gerade den Horizons nicht
 siehst.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<01 Einleitung.md>)
 - [Nächstes Kapitel →](<03 Jenseits des Gefühls – Wie man echte Intuition von Emotion unterscheidet.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

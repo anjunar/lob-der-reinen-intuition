@@ -1,4 +1,6 @@
-# Kollektive Intuition – Wie Gruppen Entscheidungen treffen können, die tragen
+Kollektive Intuition – Wie Gruppen Entscheidungen treffen können, die
+tragen
+=====================================================================
 
 In den meisten Gruppen sind Entscheidungen ein Kampf: Meinungen gegen
 Meinungen, Ego gegen Ego, Status gegen Status, Unsicherheit gegen
@@ -67,6 +69,7 @@ Kollektiv erkennt, was wahr trägt. Das ist die höchste Form
 gemeinsamer Entscheidung.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<52 Emergente Weisheit – Wie Kollektive mehr sehen als Individuen.md>)
 - [Nächstes Kapitel →](<54 Gemeinsames Lernen – Wie ein Kollektiv Wissen internalisiert.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

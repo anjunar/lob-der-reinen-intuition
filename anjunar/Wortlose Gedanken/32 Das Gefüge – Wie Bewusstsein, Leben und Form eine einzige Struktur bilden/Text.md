@@ -1,4 +1,6 @@
-# Das Gefüge – Wie Bewusstsein, Leben und Form eine einzige Struktur bilden
+Das Gefüge – Wie Bewusstsein, Leben und Form eine einzige Struktur
+bilden
+==================================================================
 
 Die meisten Menschen betrachten ihr Leben als eine Abfolge von
 Ereignissen. Entscheidungen Erlebnisse Zufälle Beziehungen Wendungen
@@ -59,6 +61,7 @@ mit deiner persönlichen Entwicklung und zeigt, wie man diesen Weg über
 ein ganzes Leben lebt.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<31 Zeitfeld – Warum Tiefe entsteht, wenn Gegenwart größer wird.md>)
 - [Nächstes Kapitel →](<33 Der lange Bogen – Wie Bewusstsein sich über Jahre formt.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

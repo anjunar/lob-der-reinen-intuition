@@ -59,6 +59,7 @@ aufeinandertreffen? Es ist ein Kapitel über Verbindung — aber nicht
 psychologisch, sondern bewusstseinsbezogen.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<35 Das Wahre Selbst – Der Punkt, an dem Bewusstsein nicht mehr gesucht werden muss.md>)
 - [Nächstes Kapitel →](<37 Die Resonanz zwischen Menschen – Wie Bewusstsein Bewusstsein stärkt.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

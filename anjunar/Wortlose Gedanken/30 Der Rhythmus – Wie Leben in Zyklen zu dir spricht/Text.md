@@ -55,6 +55,7 @@ daraus geboren: Jetzt geht es um Zeit selbst, und wie sie in deinem
 Bewusstsein wirkt.
 
 ## Querverweise
+
 - [← Voriges Kapitel](<29 Die drei Wege – Wie Menschen das Leben gestalten. Reaktion, Richtung oder Resonanz.md>)
 - [Nächstes Kapitel →](<31 Zeitfeld – Warum Tiefe entsteht, wenn Gegenwart größer wird.md>)
 - [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

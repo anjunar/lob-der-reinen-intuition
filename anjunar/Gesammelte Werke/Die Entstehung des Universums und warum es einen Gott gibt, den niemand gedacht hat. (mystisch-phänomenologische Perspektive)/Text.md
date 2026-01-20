@@ -1,4 +1,6 @@
-# Die Entstehung des Universums und warum es einen Gott gibt, den niemand gedacht hat. (mystisch-phänomenologische Perspektive)
+Die Entstehung des Universums und warum es einen Gott gibt, den
+niemand gedacht hat. (mystisch-phänomenologische Perspektive)
+===============================================================
 
 Die mystisch-phänomenologische Perspektive setzt genau dort an, wo das
 versöhnende Modell der Außen- und Innenwende bewusst innehält. Sie
