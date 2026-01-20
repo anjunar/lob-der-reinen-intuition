@@ -74,4 +74,4 @@ Definitionen als Richtungsimpulse: Es geht um Stimmigkeit, nicht um Beweise.
 - [56 Selbstorganisierte Ordnung – Wie Klarheit ohne Führung entsteht](<56 Selbstorganisierte Ordnung – Wie Klarheit ohne Führung entsteht/Text.md>)
 - [57 Kulturelle Emergenz – Wie ein System eine eigene Kultur hervorbringt](<57 Kulturelle Emergenz – Wie ein System eine eigene Kultur hervorbringt/Text.md>)
 - [58 Kulturelle Plastizität – Wie eine Kultur sich erneuern kann, ohne zu zerbrechen](<58 Kulturelle Plastizität – Wie eine Kultur sich erneuern kann, ohne zu zerbrechen/Text.md>)
-- [69 Das stille Zentrum – Warum jeder große Raum eine innere Stille braucht](<59 Das stille Zentrum – Warum jeder große Raum eine innere Stille braucht/Text.md>)
+- [59 Das stille Zentrum – Warum jeder große Raum eine innere Stille braucht](<59 Das stille Zentrum – Warum jeder große Raum eine innere Stille braucht/Text.md>)
