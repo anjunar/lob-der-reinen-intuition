@@ -1,4 +1,4 @@
-# Stufen der Wahrnehmung
+# Stufen der Ich-Wahrnehmung
 
 Die Bewegung der Ich-Auflösung beginnt nicht mit einem großen Sprung,
 sondern mit einer ersten feinen Verschiebung des Gewichts im Inneren.
