@@ -1,5 +1,7 @@
 # [Anjunar - Lob der reinen Intuition (Click)](<anjunar/README.md>)
 
+![Bild](Bild.png)
+
 ## Kurzbeschreibung
 
 Dieses Projekt versammelt die Texte von „Lob der reinen Intuition“ als offene Sammlung philosophischer, spiritueller und poetischer Reflexionen. Es ist kein systematisches Lehrbuch, sondern ein Archiv von Momentaufnahmen: Beobachtungen über Sein, Bewusstsein, Liebe, Kosmologie und gesellschaftliche Dynamik. Die Texte entstehen aus einer Haltung, die Intuition als eigenständigen Erkenntnisweg ernst nimmt. Sie suchen nicht die endgültige Theorie, sondern wollen die Grenze zwischen Sprache und Erfahrung ausloten und zeigen, wie innere Einsichten Form annehmen können.
