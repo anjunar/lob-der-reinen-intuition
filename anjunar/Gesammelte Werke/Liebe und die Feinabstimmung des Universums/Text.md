@@ -3,12 +3,14 @@
 Man könnte sagen: Liebe ist wie eine unsichtbare Resonanz, die alles
 im Universum miteinander verbindet und ausrichtet. Sie ist kein bloßes
 Empfinden, sondern eine Kraft, die tiefer reicht als jede persönliche
-Regung. Wenn die Psyche fein abgestimmt ist, wie ein sensibles
-Instrument, das nicht mehr im eigenen Lärm gefangen bleibt, entsteht
-eine neue Art der Wahrnehmung. Die innere Lautstärke sinkt, der
-ständige Strom von Bewertung, Sorge, Erinnerung und gedanklicher
-Anspannung tritt zurück. In diesem Rückzug öffnet sich ein Raum, in
-dem etwas Durchlässiges geschieht.
+Regung.
+
+Wenn die Psyche fein abgestimmt ist, wie ein sensibles Instrument, das
+nicht mehr im eigenen Lärm gefangen bleibt, entsteht eine neue Art der
+Wahrnehmung. Die innere Lautstärke sinkt, der ständige Strom von
+Bewertung, Sorge, Erinnerung und gedanklicher Anspannung tritt zurück.
+In diesem Rückzug öffnet sich ein Raum, in dem etwas Durchlässiges
+geschieht.
 
 Diese Durchlässigkeit macht das Bewusstsein empfänglich für Wahrheit,
 für Mitgefühl und für jene subtile Verbindung, die Innen und Außen
@@ -24,8 +26,9 @@ richtet uns aus, nicht durch Willenskraft, sondern durch ein inneres
 Mitschwingen. Sie macht uns empfänglich für das Ganze, für die
 Bewegung des Universums, für die zarten Verbindungen zwischen allem,
 was lebt. In ihr sind wir nicht isoliert, sondern eingebettet in ein
-Gewebe, das uns trägt, berührt und durchdringt. Und vielleicht ist
-genau das der Grund, warum die Erfahrung von Liebe gleichzeitig so
-persönlich und so universell wirkt: Sie ist der Moment, in dem der
-Einzelne plötzlich spürt, dass er Teil einer weit größeren Harmonie
-ist.
+Gewebe, das uns trägt, berührt und durchdringt.
+
+Und vielleicht ist genau das der Grund, warum die Erfahrung von Liebe
+gleichzeitig so persönlich und so universell wirkt: Sie ist der
+Moment, in dem der Einzelne plötzlich spürt, dass er Teil einer weit
+größeren Harmonie ist.

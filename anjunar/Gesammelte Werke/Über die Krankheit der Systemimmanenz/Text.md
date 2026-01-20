@@ -18,19 +18,23 @@ Der Mensch ist nicht ausgenommen.
 
 Auch er lebt in einem psychischen System, das er „Ich“ nennt. Dieses
 Ich denkt in Gewohnheiten, Mustern, Erinnerungen. Es dreht sich um
-sich selbst und nennt das „Identität“. Doch wer das Ich durchschaut,
-erkennt: es ist nur ein kleiner Wirbel im unbegrenzten Meer des Seins.
+sich selbst und nennt das „Identität“.
+
+Doch wer das Ich durchschaut, erkennt: es ist nur ein kleiner Wirbel
+im unbegrenzten Meer des Seins.
 
 Systemimmanenz ist die Krankheit, Bewusstwerdung die Heilung.
 
-Nicht durch Kampf, nicht durch Reform, sondern durch Einsicht. Denn
-sobald ein System durchschaut wird, verliert es seine Macht, das Ganze
-zu verdecken. Dann wird die Welt transparent — nicht anders, sondern
-wahrer.
+Nicht durch Kampf, nicht durch Reform, sondern durch Einsicht.
+
+Denn sobald ein System durchschaut wird, verliert es seine Macht, das
+Ganze zu verdecken. Dann wird die Welt transparent — nicht anders,
+sondern wahrer.
 
 Das Ziel ist nicht Systemlosigkeit, sondern Durchlässigkeit.
 
 Systeme dürfen bestehen, doch sie sollen Werkzeuge sein, keine Götzen.
+
 Wenn das Bewusstsein sich seiner selbst bewusst wird, verwandelt sich
 auch die Struktur. Dann entsteht eine neue Kultur — nicht mehr von
 Systemen beherrscht, sondern vom Geist durchleuchtet.

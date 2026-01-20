@@ -1,7 +1,8 @@
 # Die Innenschau des Formlosen
 
-Woraus besteht das Formlose? Man kann es nicht greifen, nicht messen,
-nicht benennen.
+Woraus besteht das Formlose?
+
+Man kann es nicht greifen, nicht messen, nicht benennen.
 
 Es hat keinen Rand, kein Zentrum, keine Farbe, kein Klang. Es ist kein
 Objekt, kein Zustand, keine Idee.
@@ -33,7 +34,8 @@ Und wir?
 Wir sind nicht Besucher dieses Blicks. Wir sind dieser Blick.
 
 Jeder Gedanke, jede Berührung, jede Frage nach dem Ursprung ist das
-Formlose, das sich selbst fragt: Was bin ich? Und jedes Staunen, jede
-Träne, jedes Lächeln ist die Antwort: Ich bin.
+Formlose, das sich selbst fragt: Was bin ich?
+
+Und jedes Staunen, jede Träne, jedes Lächeln ist die Antwort: Ich bin.
 
 Ich lebe. Ich sehe mich – in dir.

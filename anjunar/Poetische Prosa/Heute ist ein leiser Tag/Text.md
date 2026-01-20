@@ -2,7 +2,8 @@
 
 Ich muss nichts erreichen. Ich darf einfach sein.
 
-Es ist in Ordnung, wenn mein Licht heute nicht hell scheint. Auch eine
+Es ist in Ordnung, wenn mein Licht heute nicht hell scheint. Auch
+eine
 Kerze flackert manchmal – und bleibt doch Licht.
 
 Ich spüre meinen Körper. Ich atme.

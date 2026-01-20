@@ -5,7 +5,8 @@
 Der Mensch leidet, weil er sich als geschlossenes Ich erlebt, statt
 als offene Bezogenheit.
 
-Der Mensch irrt, weil er Bewusstsein für etwas hält, das sich besitzt,
+Der Mensch irrt, weil er Bewusstsein für etwas hält, das sich
+besitzt,
 statt für etwas, das sich verbindet.
 
 Der Mensch verkrampft, weil er Identität stabilisieren will, obwohl

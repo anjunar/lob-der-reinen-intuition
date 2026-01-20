@@ -6,8 +6,11 @@ Translogik“… und je höher du steigst, desto mehr kichert die Welt
 unter deinen Füßen.
 
 Die erste Sprosse ist vertraut. Hier regiert die Alltagslogik, sauber,
-akkurat, ein bisschen langweilig. Wenn du stolperst, tust du weh. Wenn
-du denkst, passiert genau das, was du erwartest. Alles hat seinen
+akkurat, ein bisschen langweilig.
+
+Wenn du stolperst, tust du weh.
+
+Wenn du denkst, passiert genau das, was du erwartest. Alles hat seinen
 Platz, alles macht Sinn. Du nickst zufrieden, aber schon dein Fuß
 scharrt ungeduldig – du willst höher.
 

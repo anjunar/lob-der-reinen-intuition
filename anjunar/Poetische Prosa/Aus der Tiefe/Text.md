@@ -1,6 +1,7 @@
 # Aus der Tiefe
 
-Lass die Gedanken ziehen wie Wolken im Wind. Was aus Lärm geboren ist,
+Lass die Gedanken ziehen wie Wolken im Wind. Was aus Lärm geboren
+ist,
 trägt keine Wahrheit.
 
 Was aus Müdigkeit spricht, ist nicht die Stimme deines Wesens. Warte,

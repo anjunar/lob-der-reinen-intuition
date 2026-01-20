@@ -26,9 +26,10 @@ dem schnellen Sieg, sondern lauscht der leisen Stimme, die sagt: Bleib
 wahr.
 
 Und wenn das Werk getan ist, wenn Erfolg und Scheitern gleich fern
-liegen, dann ruht die Würde in sich selbst. Denn sie weiß: Das
-Wesentliche war nie im Ausgang, sondern in der Art, wie das Herz sich
-bewegte.
+liegen, dann ruht die Würde in sich selbst.
+
+Denn sie weiß: Das Wesentliche war nie im Ausgang, sondern in der Art,
+wie das Herz sich bewegte.
 
 So wird jedes Handeln zu einem Gebet, jedes Schweigen zu einer
 Antwort, und der Mensch, der so lebt, trägt das Unsichtbare sichtbar

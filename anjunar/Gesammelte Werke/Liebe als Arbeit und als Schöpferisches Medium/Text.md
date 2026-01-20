@@ -1,6 +1,7 @@
 # Liebe als Arbeit und als Schöpferisches Medium
 
 Diese Aussage ist in sich konsistent und lässt sich präzise entfalten.
+
 Wenn Realität als „Liebe in Arbeit“ verstanden wird, dann ist sie kein
 statischer Zustand, sondern ein fortwährender Vollzug. Liebe
 bezeichnet dabei nicht Emotion oder Sentimentalität, sondern die
@@ -34,7 +35,5 @@ nicht.
 So verstanden ist Ihre Aussage keine Metapher, sondern eine
 ontologische Setzung: Realität ist das Wirksamwerden eines
 verbindenden Prinzips. Alles andere ist sekundär.
-
-
 
 Wenn die R

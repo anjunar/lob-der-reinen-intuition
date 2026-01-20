@@ -11,8 +11,10 @@ Dinge. Es leuchtete nicht wie eine Lampe.
 
 Es erinnerte. Und was es erinnerte, war: Verbundenheit.
 
-Das Licht breitete sich nicht aus, es wusste. Es wusste, wo jedes Ding
-sein wollte – wo jede Linie sich wölben, jede Farbe fließen, jeder Ton
+Das Licht breitete sich nicht aus, es wusste. Es wusste, wo jedes
+Ding
+sein wollte – wo jede Linie sich wölben, jede Farbe fließen, jeder
+Ton
 erklingen wollte.
 
 In diesem Licht entstanden die ersten Geometrien. Kreise, Spiralen,

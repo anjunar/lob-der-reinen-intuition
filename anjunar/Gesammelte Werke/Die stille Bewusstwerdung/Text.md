@@ -17,16 +17,18 @@ Trennung, sondern vielmehr eine Erweiterung; sie erlaubt dem Geist,
 sich auszubreiten und sich selbst wahrzunehmen, während er erkennt,
 dass Liebe sowohl durch ein Ich fließt als auch jenseits des Ichs
 existiert. Diese Differenzierung wirkt wie ein Katalysator: Sie lädt
-das Denken mit Intuition auf. Was vorher nur eine Schwingung war, wird
-jetzt zum Resonanzraum.
+das Denken mit Intuition auf.
+
+Was vorher nur eine Schwingung war, wird jetzt zum Resonanzraum.
 
 Gerade hier entsteht oft das Missverständnis: Man könnte denken, dass
 Tiefe durch Vereinfachung entsteht, durch das Zurückfallen in das
 Eine. Aber das stimmt nur halb. Tiefe entsteht durch Bewegung, nicht
 durch Erstarrung. Erst wenn Bewusstsein sich differenziert, kann es
 zurückkehren – und genau dieses Zurückkehren verleiht dem simplen Wort
-„Liebe“ seine Schwere, seine Dichte, seinen inneren Klang. Vorher war
-„Liebe“ eine Oberfläche. Nach der Erfahrung ist es ein
+„Liebe“ seine Schwere, seine Dichte, seinen inneren Klang.
+
+Vorher war „Liebe“ eine Oberfläche. Nach der Erfahrung ist es ein
 Verdichtungsraum.
 
 Die kritische Perspektive darauf lautet, dass diese Bewegung nicht
@@ -37,6 +39,7 @@ wenn die Unterscheidung eine genuine innere Notwendigkeit hat, wenn
 sie nicht künstlich gesetzt ist. Bei „individuelle Liebe“ und
 „universelle Liebe“ passiert das genau deshalb, weil es zwei
 Dimensionen desselben Phänomens sind, die sich gegenseitig erhellen.
+
 Man blickt nicht auf zwei Dinge, sondern auf zwei Spiegelungen einer
 einzigen Kraft.
 
@@ -45,9 +48,11 @@ hätte man nie etwas hinzugefügt. Aber dieses Zurück ist nicht das
 Gleiche wie der Ausgangspunkt. Es ist die Rückkehr eines
 Transformierten. „Liebe“ bedeutet jetzt unendlich mehr als zuvor, weil
 das Bewusstsein die Differenz durchlaufen hat und nun weiß, was in dem
-Wort geborgen liegt. Die Einfachheit am Ende ist radikal anders als
-die Einfachheit am Anfang. Das erste „Liebe“ ist Unwissenheit in
-Harmonieform, das zweite ist Wissen in Einfachkeitsform.
+Wort geborgen liegt.
+
+Die Einfachheit am Ende ist radikal anders als die Einfachheit am
+Anfang. Das erste „Liebe“ ist Unwissenheit in Harmonieform, das zweite
+ist Wissen in Einfachkeitsform.
 
 Dieses Hin- und Zurückschwingen – vom Einen zum Zwei und wieder zum
 Einen – ist ein Grundmuster der Bewusstwerdung. Man erfährt die Welt

@@ -12,33 +12,40 @@ und kosmischer Ordnung.
 Der erste Zustand klingt vertraut: Ich tue, und die Gesamtheit folgt.
 Hier scheint das Ich der Ursprung zu sein. Es fasst einen Entschluss,
 setzt eine Handlung, und wie eine Welle breitet sich ihre Wirkung im
-Feld der Welt aus. Doch dieser Zustand ist viel seltener, als wir
-glauben. Das Ich ist nicht der ununterbrochene Motor des Lebens. Es
-tritt nur in besonderen Momenten hervor, dann, wenn korrigiert,
-entschieden oder ausgerichtet werden muss. Es ist weniger Macher als
-Wächter, der im rechten Augenblick eingreift, damit das Ganze nicht
-aus der Spur gerät. So beschreibt es die Bhagavad Gītā: Handeln ist
-nötig, doch der Weise haftet nicht am Handeln; das Selbst bleibt
-unberührt, auch wenn es wirkt.
+Feld der Welt aus.
+
+Doch dieser Zustand ist viel seltener, als wir glauben. Das Ich ist
+nicht der ununterbrochene Motor des Lebens. Es tritt nur in besonderen
+Momenten hervor, dann, wenn korrigiert, entschieden oder ausgerichtet
+werden muss. Es ist weniger Macher als Wächter, der im rechten
+Augenblick eingreift, damit das Ganze nicht aus der Spur gerät.
+
+So beschreibt es die Bhagavad Gītā: Handeln ist nötig, doch der Weise
+haftet nicht am Handeln; das Selbst bleibt unberührt, auch wenn es
+wirkt.
 
 Im zweiten Zustand verschwimmt die Grenze zwischen Individuum und
 Ganzem. Hier tue ich, und die Gesamtheit tut mit. Es gibt kein reines
 Ich-Handeln, kein reines Welt-Handeln. Alles geschieht gemeinsam, als
-Ko-Kreation. Das Ich ist ein Instrument, das sich mühelos in einen
-größeren Rhythmus fügt, wie ein Musiker, der nicht für sich spielt,
-sondern im Einklang mit dem Orchester. Die Upanishaden beschreiben
-diese Ebene als Identität von Ātman und Brahman: Das Tun des Einzelnen
-ist zugleich eine Bewegung des Ganzen. Hier wird das Ich nicht
+Ko-Kreation.
+
+Das Ich ist ein Instrument, das sich mühelos in einen größeren
+Rhythmus fügt, wie ein Musiker, der nicht für sich spielt, sondern im
+Einklang mit dem Orchester. Die Upanishaden beschreiben diese Ebene
+als Identität von Ātman und Brahman: Das Tun des Einzelnen ist
+zugleich eine Bewegung des Ganzen. Hier wird das Ich nicht
 ausgeschaltet, aber es wird transparent für eine tiefere Kraft.
 
 Der dritte Zustand ist der stillste. Ich folge, und die Gesamtheit
 tut. Die Handlung entspringt nicht einem persönlichen Willen. Sie ist
 ein Strom, der von selbst fließt, und das Ich darf sich darin tragen
-lassen. Es kontrolliert nicht, sondern vertraut. Es ist Hingabe,
-bhakti, die Kunst, Teil des Flusses zu sein, ohne ihn steuern zu
-wollen. Ramana Maharshi sprach davon, alles dem Selbst zu überlassen;
-dann geschieht es. Das Ich wird zu einem Zeugen, der schaut, aber
-nicht eingreift, außer wenn es wirklich nötig wird.
+lassen.
+
+Es kontrolliert nicht, sondern vertraut. Es ist Hingabe, bhakti, die
+Kunst, Teil des Flusses zu sein, ohne ihn steuern zu wollen. Ramana
+Maharshi sprach davon, alles dem Selbst zu überlassen; dann geschieht
+es. Das Ich wird zu einem Zeugen, der schaut, aber nicht eingreift,
+außer wenn es wirklich nötig wird.
 
 Wenn man alle drei Zustände zusammen betrachtet, entsteht ein klares
 Bild: Das Ich ist nicht der Kapitän des Schiffes, sondern derjenige,

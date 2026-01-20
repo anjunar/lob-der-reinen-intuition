@@ -8,57 +8,64 @@ hindurch – etwas Formloses, das sich in jeder Bewegung, jedem Atemzug
 und jedem Gedanken Ausdruck verschafft. Die Realität, wie wir sie
 erleben, ist nicht nur ein physikalisches Konstrukt, sondern ein
 stabiler Rahmen, in dem unser Bewusstsein existieren und sich
-entfalten kann. Sie schützt uns, weil unser inneres Potenzial
-möglicherweise weit größer ist, als wir ertragen könnten.
-Wissenschaftliche Modelle, ob Simulation, Hologramm oder
-mathematischer Formalismus, können diese Echtheit nicht ersetzen. Wir
-leiden, wir freuen uns, wir fühlen – und diese Empfindungen sind real,
-unabhängig davon, welche Theorie gerade modern ist. Die Gefahr liegt
-dort, wo Menschen sich in Abstraktionen flüchten, nicht weil Denken
-falsch wäre, sondern weil Gedanken manchmal ein Schutzschild bilden,
-um nicht zu tief fühlen zu müssen. Doch die Echtheit der Welt bleibt
-bestehen, spürbar in jedem einfachen Akt, etwa wenn man in einen Apfel
-beißt.
+entfalten kann.
+
+Sie schützt uns, weil unser inneres Potenzial möglicherweise weit
+größer ist, als wir ertragen könnten. Wissenschaftliche Modelle, ob
+Simulation, Hologramm oder mathematischer Formalismus, können diese
+Echtheit nicht ersetzen. Wir leiden, wir freuen uns, wir fühlen – und
+diese Empfindungen sind real, unabhängig davon, welche Theorie gerade
+modern ist. Die Gefahr liegt dort, wo Menschen sich in Abstraktionen
+flüchten, nicht weil Denken falsch wäre, sondern weil Gedanken
+manchmal ein Schutzschild bilden, um nicht zu tief fühlen zu müssen.
+
+Doch die Echtheit der Welt bleibt bestehen, spürbar in jedem einfachen
+Akt, etwa wenn man in einen Apfel beißt.
 
 Bevor eine Handlung entsteht – der Griff nach einer Tasse, das Heben
 einer Hand –, ist da etwas Formloses. Eine Möglichkeit, die noch
 keinen Ausdruck hat. Erst das Bewusstsein gibt dem Formlosen eine
-Richtung. So wird aus Potenzial eine Handlung. Das Formlose ist wie
-ein unendliches Meer, und das Bewusstsein ist der Wind, der Wellen
-formt. In diesem Bild wird der freie Wille sichtbar: nicht als
-absolute, unbegrenzte Freiheit, aber als ein leiser Impuls, der die
-Bewegungen des Lebens mitprägt. In der Einsamkeit zeigt er sich am
-deutlichsten, denn soziale Interaktionen überlagern ihn, aber löschen
-ihn nie aus.
+Richtung. So wird aus Potenzial eine Handlung.
+
+Das Formlose ist wie ein unendliches Meer, und das Bewusstsein ist der
+Wind, der Wellen formt. In diesem Bild wird der freie Wille sichtbar:
+nicht als absolute, unbegrenzte Freiheit, aber als ein leiser Impuls,
+der die Bewegungen des Lebens mitprägt. In der Einsamkeit zeigt er
+sich am deutlichsten, denn soziale Interaktionen überlagern ihn, aber
+löschen ihn nie aus.
 
 Jeder Mensch konstruiert Gedanken, um psychisches Gleichgewicht
 herzustellen. So entstehen individuelle Wahrheiten – nicht
 willkürlich, sondern als Ausdruck eines inneren Bedürfnisses nach
 Stabilität. Wahrheit ist deshalb nicht nur Erkenntnis, sondern auch
 Selbstschutz. Menschen glauben nicht, was logisch ist, sondern das,
-was ihnen hilft, innerlich im Gleichgewicht zu bleiben. Und doch gibt
-es eine Wahrheit, die nicht individuell ist. Die einzige Wahrheit, die
-man nicht übersteigen kann, ist die Einheit von allem. Wer versucht,
-etwas über die Einheit zu stellen, schafft sofort Trennung und
-entfernt sich damit vom Absoluten. In der Einheit gibt es keinen Ort,
-an dem man verloren gehen kann. Alles ist darin enthalten – Leid,
-Freude, Dunkelheit und Licht. Gut und Böse sind Konstruktionen, die
-erst innerhalb der Dualität entstehen; in der Einheit gibt es keine
-Gegensätze, nur Sein. Für jemanden, der die Einheit einmal gespürt
-hat, ist sie nicht nur ein Gedanke, sondern ein inneres Wissen, ein
-Kontext, der das Denken erweitert, weil man nichts ausschließen
-möchte.
+was ihnen hilft, innerlich im Gleichgewicht zu bleiben.
+
+Und doch gibt es eine Wahrheit, die nicht individuell ist. Die einzige
+Wahrheit, die man nicht übersteigen kann, ist die Einheit von allem.
+Wer versucht, etwas über die Einheit zu stellen, schafft sofort
+Trennung und entfernt sich damit vom Absoluten. In der Einheit gibt es
+keinen Ort, an dem man verloren gehen kann.
+
+Alles ist darin enthalten – Leid, Freude, Dunkelheit und Licht. Gut
+und Böse sind Konstruktionen, die erst innerhalb der Dualität
+entstehen; in der Einheit gibt es keine Gegensätze, nur Sein. Für
+jemanden, der die Einheit einmal gespürt hat, ist sie nicht nur ein
+Gedanke, sondern ein inneres Wissen, ein Kontext, der das Denken
+erweitert, weil man nichts ausschließen möchte.
 
 Wenn Einheit das Sein ist, dann ist Liebe die Bewegung darin. Nicht
 als romantisches Gefühl, sondern als metaphysische Kraft. Liebe
 verbindet, was getrennt scheint. Sie zeigt sich im Miteinander – in
-dem Moment, in dem man im anderen sich selbst wiederfindet. Liebe ist
-das tiefste Miteinander, weil sie Resonanz ermöglicht: Wenn zwei
-Menschen eine ähnliche Erfahrung machen, entsteht ein Wiedererkennen
-der gemeinsamen Essenz. Vielleicht begegnen wir einander genau deshalb
-– um uns selbst im anderen zu erkennen.
+dem Moment, in dem man im anderen sich selbst wiederfindet.
+
+Liebe ist das tiefste Miteinander, weil sie Resonanz ermöglicht: Wenn
+zwei Menschen eine ähnliche Erfahrung machen, entsteht ein
+Wiedererkennen der gemeinsamen Essenz. Vielleicht begegnen wir
+einander genau deshalb – um uns selbst im anderen zu erkennen.
 
 Die wichtigsten Gedanken kommen oft dann, wenn man sie nicht erwartet.
+
 Wenn der Geist still wird, kann das Formlose sprechen. Diese
 Einsichten fühlen sich nicht gemacht an, sondern geschenkt, manchmal
 wie eine Brücke, die auftaucht, wenn der Weg unsicher erscheint.

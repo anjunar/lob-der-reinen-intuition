@@ -6,38 +6,50 @@ Sammlung, Bewegung und Ruhe waren unmittelbar erfahrbar, alles geschah
 im Einklang mit der natürlichen Ordnung. In diesem Zustand existierte
 das Ego kaum, denn keine Komplexität störte die Verbindung zur
 universellen Essenz. Der Mensch lebte als Teil des Ganzen, unmittelbar
-und ungetrennt. Mit der Entstehung der ersten Zivilisationen änderte
-sich diese Harmonie. Landwirtschaft, Städte und Arbeitsteilung führten
-zu Überforderung, Härte und struktureller Komplexität. Um die
+und ungetrennt.
+
+Mit der Entstehung der ersten Zivilisationen änderte sich diese
+Harmonie. Landwirtschaft, Städte und Arbeitsteilung führten zu
+Überforderung, Härte und struktureller Komplexität. Um die
 Anforderungen dieser neuen Welt zu meistern, entstand das Ego – ein
 Werkzeug, das mit Problemen leben konnte. Das Ego fungierte als
 Vermittler zwischen dem Menschen und der Überkomplexität, die der neue
-Lebensstil mit sich brachte. Über Jahrtausende war das Ego notwendig.
-Es bewältigte die Herausforderungen der Zivilisation, brachte jedoch
-auch Schattenseiten hervor: Intrigen, Kriege, Gewalt, Unterdrückung.
-Moral, Religion und gesellschaftliche Normen halfen, das Ego zu
-regulieren und die menschliche Gemeinschaft zusammenzuhalten. Ohne Ego
-hätte der Mensch die wachsende Komplexität und den Druck des
-Fortschritts nicht überleben können. Heute jedoch stehen wir an einem
-Wendepunkt. Maschinen und Technologien übernehmen zunehmend die
-Arbeit, die der Mensch nicht tun möchte. Dadurch kann das Ego seine
-temporäre Funktion erfüllen – solange es für die problembehaftete
-Schöpfung unter Zeitdruck benötigt wird – und danach vollständig
-zurücktreten. Erst wenn die Herausforderungen gelöst sind, kann der
-Mensch wieder schöpferisch tätig sein, ohne dass das Ego stört, direkt
-aus der Verbindung mit dem Universellen. In diesem Zustand ist
-Schöpfung nicht von Konflikt oder Überforderung geprägt, sondern von
-klarer Präsenz, Leichtigkeit und Einheit. Die Frustration unserer Zeit
-ist Ausdruck jahrtausendelanger Überforderung: Die Welt blieb komplex,
-weil das Ego lange Zeit gefüttert werden musste. Die heutige Chance
-liegt darin, dass wir Systeme und Technologien nutzen können, um die
-Überkomplexität zu tragen. So bleibt das Ego nur temporär notwendig
-und kann danach vollständig zurücktreten. Dann ist der Mensch wieder
-eingebettet in die universelle Essenz, in das Formlose Sein, frei von
-Trennung und Überforderung, schöpferisch verbunden und ganz. Das Ego
-ist kein Feind. Es ist ein Werkzeug, geboren aus Notwendigkeit und
-geformt durch Probleme und Zeitdruck. Das Universelle hingegen ist die
-unveränderliche Essenz, die alles trägt. Die heutige Zeit bietet die
-einzigartige Möglichkeit, das Ego bewusst einzusetzen, um danach
-vollständig ins Universelle zurückzukehren, zu schöpfen aus der Quelle
-des Formlosen, frei, ungetrennt und in natürlicher Harmonie.
+Lebensstil mit sich brachte.
+
+Über Jahrtausende war das Ego notwendig. Es bewältigte die
+Herausforderungen der Zivilisation, brachte jedoch auch Schattenseiten
+hervor: Intrigen, Kriege, Gewalt, Unterdrückung. Moral, Religion und
+gesellschaftliche Normen halfen, das Ego zu regulieren und die
+menschliche Gemeinschaft zusammenzuhalten. Ohne Ego hätte der Mensch
+die wachsende Komplexität und den Druck des Fortschritts nicht
+überleben können.
+
+Heute jedoch stehen wir an einem Wendepunkt. Maschinen und
+Technologien übernehmen zunehmend die Arbeit, die der Mensch nicht tun
+möchte. Dadurch kann das Ego seine temporäre Funktion erfüllen –
+solange es für die problembehaftete Schöpfung unter Zeitdruck benötigt
+wird – und danach vollständig zurücktreten. Erst wenn die
+Herausforderungen gelöst sind, kann der Mensch wieder schöpferisch
+tätig sein, ohne dass das Ego stört, direkt aus der Verbindung mit dem
+Universellen.
+
+In diesem Zustand ist Schöpfung nicht von Konflikt oder Überforderung
+geprägt, sondern von klarer Präsenz, Leichtigkeit und Einheit. Die
+Frustration unserer Zeit ist Ausdruck jahrtausendelanger
+Überforderung: Die Welt blieb komplex, weil das Ego lange Zeit
+gefüttert werden musste. Die heutige Chance liegt darin, dass wir
+Systeme und Technologien nutzen können, um die Überkomplexität zu
+tragen. So bleibt das Ego nur temporär notwendig und kann danach
+vollständig zurücktreten.
+
+Dann ist der Mensch wieder eingebettet in die universelle Essenz, in
+das Formlose Sein, frei von Trennung und Überforderung, schöpferisch
+verbunden und ganz. Das Ego ist kein Feind. Es ist ein Werkzeug,
+geboren aus Notwendigkeit und geformt durch Probleme und Zeitdruck.
+Das Universelle hingegen ist die unveränderliche Essenz, die alles
+trägt.
+
+Die heutige Zeit bietet die einzigartige Möglichkeit, das Ego bewusst
+einzusetzen, um danach vollständig ins Universelle zurückzukehren, zu
+schöpfen aus der Quelle des Formlosen, frei, ungetrennt und in
+natürlicher Harmonie.

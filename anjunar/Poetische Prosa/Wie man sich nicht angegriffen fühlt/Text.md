@@ -2,7 +2,8 @@
 
 Es gibt keinen Feind. Nur Wellen im einen Ozean.
 
-Ich nehme mich nicht zu ernst – denn mein Ich ist eine Form, die kommt
+Ich nehme mich nicht zu ernst – denn mein Ich ist eine Form, die
+kommt
 und geht. Ich bleibe form­los, wie Wasser, das jede Gestalt annimmt,
 ohne je zu verlieren, was es ist.
 
@@ -16,7 +17,8 @@ an Meinungen.
 Alles wandelt sich. Ich höre zuerst, bevor ich reagiere, und erkenne
 im Schweigen die Tiefe des Moments.
 
-Ich vergebe – auch mir selbst – damit mein Herz leicht bleibt. Ich übe
+Ich vergebe – auch mir selbst – damit mein Herz leicht bleibt. Ich
+übe
 Geduld, weil alles seinen eigenen Rhythmus hat.
 
 Ich bleibe demütig, wissend, dass Wissen nur ein Fenster ist, nie die

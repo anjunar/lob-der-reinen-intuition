@@ -18,26 +18,34 @@ stressigen Phasen kann ein total verzerrter Gedanke – „Meine Freundin
 meldet sich nicht, weil sie mich hasst“ – paradoxerweise beruhigen,
 weil er eine klare Erklärung liefert. Plötzlich hat das Chaos einen
 Namen, und man fühlt sich nicht mehr völlig verloren. Das Gehirn liebt
-das. Es belohnt jede Geschichte, die Lücken schließt, egal wie dämlich
-sie ist.
+das.
 
-Genau da wird’s gefährlich. Wenn man einmal gemerkt hat, wie gut sich
-eine falsche, aber runde Erzählung anfühlt, fängt man an, alles zu
-ignorieren, was nicht hineinpasst. Man sucht nur noch Bestätigung,
-meidet Widerspruch und baut sich langsam eine Blase. Am Ende glaubt
-man Sachen, die jeder Außenstehende sofort als Quatsch entlarven würde
-– und fühlt sich dabei erstaunlich stabil. Viele Menschen, die richtig
-abdriften (Verschwörungstheorien, Wahn, toxische Beziehungen), sind
-nicht verrückt im klassischen Sinne. Sie sind einfach zu gut darin
-geworden, sich selbst zu beruhigen.
+Es belohnt jede Geschichte, die Lücken schließt, egal wie dämlich sie
+ist.
+
+Genau da wird’s gefährlich.
+
+Wenn man einmal gemerkt hat, wie gut sich eine falsche, aber runde
+Erzählung anfühlt, fängt man an, alles zu ignorieren, was nicht
+hineinpasst. Man sucht nur noch Bestätigung, meidet Widerspruch und
+baut sich langsam eine Blase. Am Ende glaubt man Sachen, die jeder
+Außenstehende sofort als Quatsch entlarven würde – und fühlt sich
+dabei erstaunlich stabil. Viele Menschen, die richtig abdriften
+(Verschwörungstheorien, Wahn, toxische Beziehungen), sind nicht
+verrückt im klassischen Sinne.
+
+Sie sind einfach zu gut darin geworden, sich selbst zu beruhigen.
 
 Die gängige Gegenstrategie ist Bekanntes: Alles schlechtreden. Sich
 kleinmachen. Immer vom Schlimmsten ausgehen. Das ist nicht besonders
-sexy, aber es funktioniert. Wenn du eh mit nichts rechnest, kannst du
-nicht enttäuscht werden. Wenn du dich für den größten Versager hältst,
-fällst du nicht tief. Die Welt liefert täglich genug Scheiße, um diese
-Haltung zu bestätigen – also passt alles. Negativität ist billig,
-braucht wenig Energie und schützt zuverlässig vor Größenwahn.
+sexy, aber es funktioniert.
+
+Wenn du eh mit nichts rechnest, kannst du nicht enttäuscht werden.
+
+Wenn du dich für den größten Versager hältst, fällst du nicht tief.
+Die Welt liefert täglich genug Scheiße, um diese Haltung zu bestätigen
+– also passt alles. Negativität ist billig, braucht wenig Energie und
+schützt zuverlässig vor Größenwahn.
 
 Der Haken: Sie frisst dich auf. Langfristig macht sie depressiv, engt
 ein, lässt keine Freude zu, blockiert Risiken, die sich lohnen
@@ -49,22 +57,26 @@ Gedanken zu haben, die einen innerlich beruhigen, ohne dass sie total
 realitätsfern sind. Das klingt einfach, ist aber verdammt schwer. Die
 meisten von uns schaffen das nicht elegant, sondern holprig. Mal
 rutschen wir in die eine Richtung (Selbsttäuschung), mal in die andere
-(Zynismus). Wir pendeln, fallen um, rappeln uns auf. Manchmal helfen
-Therapie, Freunde, die einem den Spiegel vorhalten, oder einfach ein
-paar harte Lebenslektionen.
+(Zynismus).
+
+Wir pendeln, fallen um, rappeln uns auf. Manchmal helfen Therapie,
+Freunde, die einem den Spiegel vorhalten, oder einfach ein paar harte
+Lebenslektionen.
 
 Und ja, es gibt Menschen, die das einigermaßen hinbekommen: Sie können
 Hoffnung haben, ohne naiv zu sein. Sie können Kritik aushalten, ohne
 sich sofort klein zu machen. Sie können große Ideen denken, ohne
 abzuheben, und bittere Wahrheiten akzeptieren, ohne daran zu
-verzweifeln. Aber die meisten von uns sind nicht dauerhaft da. Wir
-wackeln rum, machen Fehler, korrigieren, täuschen uns wieder, hadern,
-lachen darüber und versuchen’s morgen nochmal.
+verzweifeln. Aber die meisten von uns sind nicht dauerhaft da.
+
+Wir wackeln rum, machen Fehler, korrigieren, täuschen uns wieder,
+hadern, lachen darüber und versuchen’s morgen nochmal.
 
 Echtes psychisches Gleichgewicht ist selten ein graziler Tanz.
 Meistens ist es ein stolpernder, schweißtreibender Balanceakt auf
 einem schlammigen Untergrund – mit Pausen, Rückfällen und kleinen
 Siegen, die niemand sieht. Und das reicht völlig. Du musst nicht
-erleuchtet sein, um ein halbwegs gutes Leben zu führen. Es genügt,
-wenn du immer wieder merkst, wann du dich gerade verpisst hast – und
-dann versuchst, ein kleines Stück zurückzukommen.
+erleuchtet sein, um ein halbwegs gutes Leben zu führen.
+
+Es genügt, wenn du immer wieder merkst, wann du dich gerade verpisst
+hast – und dann versuchst, ein kleines Stück zurückzukommen.

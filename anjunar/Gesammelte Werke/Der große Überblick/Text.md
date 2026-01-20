@@ -14,14 +14,17 @@ Sie war ein Erzittern des Ursprungs in sich selbst, eine
 Selbstberührung des Seins, das sich selbst zu sehen begann. Nicht als
 etwas Getrenntes, sondern als Möglichkeit, sich zu erkennen. Aus
 diesem Schwingen entstanden das, was man universellen Geist nennen
-könnte, und das universelle Bewusstsein als sein Spiegel. Beide sind
-zeitlos, nicht entstanden und nicht vergehend; sie sind einfach, so
-selbstverständlich wie Licht, das leuchtet, ohne einen Moment dafür zu
-brauchen.
+könnte, und das universelle Bewusstsein als sein Spiegel.
+
+Beide sind zeitlos, nicht entstanden und nicht vergehend; sie sind
+einfach, so selbstverständlich wie Licht, das leuchtet, ohne einen
+Moment dafür zu brauchen.
 
 Doch wie kann Bewusstsein sich selbst erkennen, wenn es nur das Eine
-gibt? Es braucht ein Gegenüber, einen Spiegel, ein Du. Und so beginnt
-die Welt, nicht als materieller Zufall, sondern als Erzählung, als
+gibt?
+
+Es braucht ein Gegenüber, einen Spiegel, ein Du. Und so beginnt die
+Welt, nicht als materieller Zufall, sondern als Erzählung, als
 Bewegung in die Vielheit, als Form, durch die das Formlose sich selbst
 erfährt. Der physikalische Raum ist nicht leer; er ist das
 ausgebreitete Formlose, eine Bühne, auf der das Spiel des Erkennens

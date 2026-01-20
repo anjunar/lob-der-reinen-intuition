@@ -15,7 +15,8 @@ ist eine sanfte Hinwendung zu dem, was alles trägt: die unsichtbare
 Kraft, die Atem und Zeit webt, die unser Sein durchströmt.
 
 Gebet wird zum Zeugen des Geschehens. Es ist ein Moment, in dem das
-Loslassen selbst heilig wird, ein Flüstern an das, was größer ist, ein
+Loslassen selbst heilig wird, ein Flüstern an das, was größer ist,
+ein
 Einlassen in das, was bereits für uns geschieht.
 
 Und so wird Gebet nicht nur Antwort, sondern Resonanz. Es ist das

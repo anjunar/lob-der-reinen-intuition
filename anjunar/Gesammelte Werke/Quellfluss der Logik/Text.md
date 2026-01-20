@@ -19,9 +19,10 @@ natürliche Konsequenzen eines Flusses, der weiß, wohin er geht.
 Struktur und Erscheinung wirken dann wie eine einzige Bewegung. In
 solchen Momenten, wenn das Denken oder die Wahrnehmung sich diesem
 klaren Ursprung annähert, spürt man, dass Ordnung kein Zwang ist,
-sondern eine Art inneres Atmen des Universums. Kohärenz entsteht von
-selbst, und was wir als Wahrheit erleben, zeigt sich eher wie ein
-Offenwerden als wie ein Schlussfolgern.
+sondern eine Art inneres Atmen des Universums.
+
+Kohärenz entsteht von selbst, und was wir als Wahrheit erleben, zeigt
+sich eher wie ein Offenwerden als wie ein Schlussfolgern.
 
 Doch sobald Unreinheiten den Fluss berühren – und hier sind es selten
 äußere Einflüsse, sondern meist Grenzen unserer eigenen Wahrnehmung –,
@@ -33,6 +34,7 @@ chaotisch wirken und doch auf etwas Tieferes hinweisen. Was wir in der
 alltäglichen Welt als Unlogik erfahren – Widersprüche, Paradoxien,
 Brüche in unseren Deutungen – ist nicht wirkliche Unordnung, sondern
 die Folge der Distanz zwischen unserem Denken und der reinen Quelle.
+
 Die Trübung verändert nicht den Fluss selbst, sondern nur unsere Sicht
 auf ihn.
 
@@ -43,16 +45,19 @@ Erscheinung, die zeigt, wo wir stehen, wie weit wir uns von der Quelle
 entfernt haben und wo unsere eigene Klarheit noch zu wachsen hat. Wer
 näher zur Quelle kommt – sei es durch Einsicht, Stille, Aufmerksamkeit
 oder innere Reifung –, beginnt zu spüren, wie die verborgene Ordnung
-selbst in den größten Paradoxien wirkt. Das scheinbare Chaos verliert
-seinen Schrecken und zeigt sich als Übergangsphänomen, als Schleier
-über einer tieferen Wahrheit.
+selbst in den größten Paradoxien wirkt.
+
+Das scheinbare Chaos verliert seinen Schrecken und zeigt sich als
+Übergangsphänomen, als Schleier über einer tieferen Wahrheit.
 
 Je weiter man in diesen Strom hineinhorcht, desto deutlicher wird: Die
 Logik ist das Wasser, die Quelle bleibt rein, die Welt erscheint trüb,
 und doch strömt alles aus derselben Ordnung. Nichts davon ist
 getrennt. Was wir Chaos nennen, ist nur der Teil der Ordnung, den wir
 noch nicht klar sehen können. Und was wir Logik nennen, ist nur ein
-Funke dessen, was am Ursprung vollkommen ist. In diesem Verständnis
-beginnt die Welt, selbst in ihrer Widersprüchlichkeit, wieder
-durchsichtig zu werden – nicht als mechanisches System, sondern als
-lebendiger Fluss, der uns unablässig an seinen Anfang erinnert.
+Funke dessen, was am Ursprung vollkommen ist.
+
+In diesem Verständnis beginnt die Welt, selbst in ihrer
+Widersprüchlichkeit, wieder durchsichtig zu werden – nicht als
+mechanisches System, sondern als lebendiger Fluss, der uns unablässig
+an seinen Anfang erinnert.
