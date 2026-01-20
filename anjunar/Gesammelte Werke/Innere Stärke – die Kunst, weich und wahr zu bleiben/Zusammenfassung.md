@@ -1,1 +1,14 @@
-Der Text entwickelt eine reflektierende Betrachtung über Stärke, Entsteht und Sondern, wobei Erfahrungen zu innerer Klarheit führen. Er zeigt, wie Innere und Bleiben als Kräfte wirken, die Entscheidungen, Beziehungen und Wahrnehmung ordnen. Statt technischer Argumente wird ein stiller Zugang betont, der Intuition, Haltung und Verantwortung verbindet. Die Darstellung lädt dazu ein, gewohnte Muster zu hinterfragen und eine stimmige Praxis im Alltag zu entwickeln. Gleichzeitig werden Spannungen zwischen Individuum und Gemeinschaft, Handlung und Sein, als fruchtbare Bewegung beschrieben. Am Ende entsteht das Bild einer reifen Orientierung, die aus Weichheit, Fühlen und Kunst eine tragfähige Richtung formt.
+1) Titel: Innere Stärke – die Kunst, weich und wahr zu bleiben
+2) Essenz: Der Text entfaltet eine nüchterne Reflexion über Entsteht, Stärke und klärt, wie diese Begriffe die Grundstruktur der Wirklichkeit markieren. Er verbindet Weichheit, Fühlen mit einer Orientierung, die von innerer Kohärenz statt äußerer Beweise ausgeht und dadurch eine Haltung im Denken vorschlägt.
+3) Vorkenntnisse / empfohlene Vorlektüre:
+   - Texte: anjunar/Gesammelte Werke/Der große Überblick, anjunar/Gesammelte Werke/Die Ontologie des Seins
+   - Begriffe/Konzepte: Metapher und Argumentation, Philosophische Grundbegriffe
+4) Schwierigkeitsgrad: 3/5 – Mittlere Komplexität durch philosophische Begriffe und Argumentlinien.
+5) Lesedauer: ca. 2 Minuten
+6) Lesemodus: schnell-lesbar
+7) Schlüsselbegriffe: Entsteht, Stärke, Weichheit, Fühlen, Welt, Innere, Bleiben, Denken, Was, Spüren
+8) Emotionale Intensität: niedrig
+9) Querverweise:
+   - Wenn dich das interessiert → lies: anjunar/Gesammelte Werke/Der große Überblick
+   - Wenn dich das interessiert → lies: anjunar/Gesammelte Werke/Die Ontologie des Seins
+10) Ein-Satz-Warnung: Keine inhaltliche Warnung notwendig.
