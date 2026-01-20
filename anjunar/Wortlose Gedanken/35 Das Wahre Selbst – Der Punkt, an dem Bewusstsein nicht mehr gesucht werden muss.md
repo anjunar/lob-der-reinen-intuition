@@ -59,3 +59,8 @@ Selbst ist der ruhigste Ort in dir — und der kraftvollste. Hier
 beginnt echte Freiheit. Nicht als Idee. Als Sein. Das nächste Kapitel
 öffnet die Perspektive nach außen und zeigt, wie Menschen vom Wahren
 Selbst aus wirken — nicht als Rolle, sondern als Feld.
+
+## Querverweise
+- [← Voriges Kapitel](<34 Die transparente Identität – Wer du bist, wenn du nichts festhältst.md>)
+- [Nächstes Kapitel →](<36 Die Präsenz – Wie ein Mensch Raum verändert.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

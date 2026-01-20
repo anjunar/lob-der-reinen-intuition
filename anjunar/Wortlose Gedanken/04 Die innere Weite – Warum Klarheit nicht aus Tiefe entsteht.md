@@ -38,3 +38,8 @@ führt zu einem Leben, in dem man ständig nachdrückt und nie wirklich
 ankommt. Wer aber zuerst weit wird, findet von selbst die wenigen
 Gedanken, die es wert sind, tiefer zu gehen. Und nur diese wenigen
 tragen Bedeutung.
+
+## Querverweise
+- [← Voriges Kapitel](<03 Jenseits des Gefühls – Wie man echte Intuition von Emotion unterscheidet.md>)
+- [Nächstes Kapitel →](<05 Die Linie – Warum Intuition keine Frage stellt, sondern Richtung gibt.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

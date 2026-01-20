@@ -57,3 +57,8 @@ einziges Gespräch. Ein einziges Feld. Ein einziges Gefüge. Das nächste
 Kapitel (Kapitel 33) ist ein Scharnierkapitel: Es verbindet das Gefüge
 mit deiner persönlichen Entwicklung und zeigt, wie man diesen Weg über
 ein ganzes Leben lebt.
+
+## Querverweise
+- [← Voriges Kapitel](<31 Zeitfeld – Warum Tiefe entsteht, wenn Gegenwart größer wird.md>)
+- [Nächstes Kapitel →](<33 Der lange Bogen – Wie Bewusstsein sich über Jahre formt.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

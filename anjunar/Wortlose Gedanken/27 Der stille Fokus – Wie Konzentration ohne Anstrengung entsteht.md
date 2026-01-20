@@ -56,3 +56,8 @@ sondern getragen. Stiller Fokus ist Bewusstsein, das sich entscheidet.
 Das ist der Zustand, in dem Meisterschaft entsteht — natürlich, ruhig,
 präzise. Der nächste natürliche Schritt führt in ein weiteres äußeres
 Kapitel.
+
+## Querverweise
+- [← Voriges Kapitel](<26 Die äußere Linie – Wie innere Stimmigkeit ein Leben formt.md>)
+- [Nächstes Kapitel →](<28 Das große Muster – Wie sich Leben und Bewusstsein gegenseitig formen.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

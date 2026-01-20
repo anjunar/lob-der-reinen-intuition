@@ -39,3 +39,8 @@ nicht schwach. Sie macht furchtlos. Denn Angst entsteht nur, wenn man
 glaubt, der Inhalt des Bewusstseins könne einen zerstören. Doch was du
 wirklich bist, kann von keinem Gedanken und keinem Gefühl berührt
 werden. Das ist der Ursprung aller inneren Ruhe.
+
+## Querverweise
+- [← Voriges Kapitel](<17 Der stille Beobachter – Wie man in sich selbst einen zuverlässigen Anker findet.md>)
+- [Nächstes Kapitel →](<19 Die natürliche Bewegung – Wie Leben ohne Druck entsteht.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

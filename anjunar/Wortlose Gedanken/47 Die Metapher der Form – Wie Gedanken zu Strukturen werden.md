@@ -67,3 +67,8 @@ der Erkenntnis.
 
 Das nächste Kapitel führt diesen Prozess weiter und zeigt, wie
 Metaphern ganze Systeme hervorbringen.
+
+## Querverweise
+- [← Voriges Kapitel](<46 Kreative Intelligenz – Wie Mensch und Maschine gemeinsam Neues hervorbringen.md>)
+- [Nächstes Kapitel →](<48 Lineare Systeme – Wie Metaphern zu Architektur werden.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

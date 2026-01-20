@@ -49,3 +49,8 @@ Falschen aus Motivation — und kommen nicht weit. Aber sie folgen dem
 Wahren aus Stille — und kommen an. Die äußere Linie ist der Weg, den
 das Leben mit dir geht, wenn du aufhörst, es zu hindern. Das nächste
 Kapitel erweitert das Bild und macht es noch konkreter.
+
+## Querverweise
+- [← Voriges Kapitel](<25 Der klare Schritt – Wie Handlung aus Bewusstsein entsteht.md>)
+- [Nächstes Kapitel →](<27 Der stille Fokus – Wie Konzentration ohne Anstrengung entsteht.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

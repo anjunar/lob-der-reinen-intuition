@@ -84,3 +84,8 @@ stimmt, stimmt alles, was darin geschieht. Wenn ein Raum aus sich
 heraus klar ist, werden Menschen klar. Wenn ein Raum aus sich heraus
 tief ist, werden Menschen tief. Selbstorganisation ist nicht Chaos.
 Selbstorganisation ist die höchste Form von Ordnung.
+
+## Querverweise
+- [← Voriges Kapitel](<55 Die zyklische Erkenntnispraxis – Wie ein Kollektiv kontinuierlich klarer wird.md>)
+- [Nächstes Kapitel →](<58 Kulturelle Emergenz – Wie ein System eine eigene Kultur hervorbringt.md>)
+- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)
