@@ -82,9 +82,3 @@ Abstimmungen, keine Machtspiele, keine politischen Spiele.
 Nur: Das Kollektiv erkennt, was wahr trägt. Das ist die höchste Form
 gemeinsamer Entscheidung.
 
-## Querverweise
-- [← Voriges Kapitel](<52 Emergente Weisheit – Wie Kollektive mehr sehen
-  als Individuen.md>)
-- [Nächstes Kapitel →](<54 Gemeinsames Lernen – Wie ein Kollektiv Wissen
-  internalisiert.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

@@ -88,12 +88,3 @@ dem das Beste stehen bleibt und das Unklare sich ordnet.
 
 Ein Ort, an dem Bewusstsein in Gemeinschaft reift. Ein Ort, der trägt.
 
-Das nächste Kapitel (Kapitel 41) führt aus diesem kollektiven Raum in
-die Frage, wie Wahrheit in Gruppen stabil bleibt.
-
-## Querverweise
-- [← Voriges Kapitel](<39 Der wahre Spiegel – Wie Menschen einander
-  klarer machen.md>)
-- [Nächstes Kapitel →](<41 Gemeinschaftliche Wahrheit – Wie ein
-  Kollektiv klar bleibt.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

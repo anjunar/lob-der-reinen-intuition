@@ -79,15 +79,3 @@ Tiefe Verbindung entsteht, wenn zwei Menschen in Resonanz miteinander
 stehen — nicht aus Projektionsmustern, sondern aus Bewusstsein. Eine
 Verbindung, die trägt. Die heilt. Die klärt.
 
-Die nicht zerfällt, wenn es schwer wird. Die nicht abhängig macht,
-wenn es leicht ist. Eine Verbindung, die wahr ist. Das nächste Kapitel
-(Kapitel 39) führt diese Idee weiter und zeigt, wie Wahrheit im
-Kontakt zu einer Art inneren Spiegel wird: Kapitel 39 Der wahre
-Spiegel – Wie Menschen einander klarer machen.
-
-## Querverweise
-- [← Voriges Kapitel](<37 Die Resonanz zwischen Menschen – Wie
-  Bewusstsein Bewusstsein stärkt.md>)
-- [Nächstes Kapitel →](<39 Der wahre Spiegel – Wie Menschen einander
-  klarer machen.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

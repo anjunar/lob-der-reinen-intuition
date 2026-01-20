@@ -77,9 +77,3 @@ Kollektiv selbst erkennt. Das ist die höchste Form von gemeinsamem
 Denken — und es ist die Grundlage für eine neue Generation digitaler
 Räume.
 
-## Querverweise
-- [← Voriges Kapitel](<51 Der Einfluss der Architektur – Wie Systeme
-  Bewusstsein formen.md>)
-- [Nächstes Kapitel →](<53 Kollektive Intuition – Wie Gruppen
-  Entscheidungen treffen können, die tragen.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

@@ -63,9 +63,3 @@ Zustand. Und deshalb versucht Wahrheit nie, sich durchzusetzen.
 Nur Unwahrheit kämpft um Raum. Wahrheit wartet. Sie weiß, dass du sie
 erkennst, wenn du weit genug wirst.
 
-## Querverweise
-- [← Voriges Kapitel](<07 Der Kompass – Wie man innere Richtung
-  zuverlässig liest.md>)
-- [Nächstes Kapitel →](<09 Der Verlust – Warum man manchmal zuerst
-  zerfällt, bevor man wahr wird.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

@@ -97,9 +97,3 @@ Diskutieren.
 Es ist ein Ort zum Reifen, ein Raum, der Bewusstsein stärkt, eine
 Architektur, die den Menschen zu seiner besten Form hinzieht.
 
-## Querverweise
-- [← Voriges Kapitel](<50 Die Seele der Architektur – Was ein System von
-  innen trägt.md>)
-- [Nächstes Kapitel →](<52 Emergente Weisheit – Wie Kollektive mehr
-  sehen als Individuen.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)

@@ -63,9 +63,3 @@ Und deshalb ist Stille kein spirituelles Ideal, sondern ein
 funktionaler Zustand: die beste Umgebung, in der Wahrheit sichtbar
 werden kann.
 
-## Querverweise
-- [← Voriges Kapitel](<05 Die Linie – Warum Intuition keine Frage
-  stellt, sondern Richtung gibt.md>)
-- [Nächstes Kapitel →](<07 Der Kompass – Wie man innere Richtung
-  zuverlässig liest.md>)
-- [Inhaltsverzeichnis](<Inhaltsverzeichnis.md>)
