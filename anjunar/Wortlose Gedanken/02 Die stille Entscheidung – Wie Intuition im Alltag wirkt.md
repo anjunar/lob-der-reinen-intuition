@@ -34,13 +34,12 @@ genug zu werden, um etwas zu erkennen.
 Intuition ist nicht langsam. Sie ist nur leise. Aber in einer Welt, in
 der Lautstärke mit Bedeutung und Geschwindigkeit mit Wichtigkeit
 verwechselt wird, geht das Leise schnell unter. Deshalb ist die erste
-Form alltäglicher Intuition nicht das Erkennen, sondern das
-Nicht-Reagieren. Nicht impulsiv. Nicht automatisch. Nicht reflexhaft.
-Es ist der kleine Moment zwischen Reiz und Antwort, in dem man sich
-selbst hört: „Das stimmt nicht für mich.“ oder „Genau das.“ Wenn ein
-Mensch diesen Moment findet, auch nur einen Atemzug lang, entsteht
-Klarheit. Nicht, weil man besser nachdenkt, sondern weil man weniger
-stört.
+Form alltäglicher Intuition nicht das Erkennen, sondern das Nicht-
+Reagieren. Nicht impulsiv. Nicht automatisch. Nicht reflexhaft. Es ist
+der kleine Moment zwischen Reiz und Antwort, in dem man sich selbst
+hört: „Das stimmt nicht für mich.“ oder „Genau das.“ Wenn ein Mensch
+diesen Moment findet, auch nur einen Atemzug lang, entsteht Klarheit.
+Nicht, weil man besser nachdenkt, sondern weil man weniger stört.
 
 Intuition arbeitet nicht, wenn man sie drängt. Sie erscheint, wenn man
 sich selbst Raum gibt. Und im Alltag bedeutet das oft etwas

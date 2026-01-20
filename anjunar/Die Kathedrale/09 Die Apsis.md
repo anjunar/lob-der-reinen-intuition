@@ -81,4 +81,5 @@ dieser Mitte beginnt das Werk, das durch dich in die Welt will – klar,
 durchlässig, unaufdringlich, unverwechselbar.
 
 ---
-[← Die Vierung](08%20Die%20Vierung.md) | [Inhaltsverzeichnis](01%20Einleitung.md)
+[← Die Vierung](08%20Die%20Vierung.md) |
+[Inhaltsverzeichnis](01%20Einleitung.md)

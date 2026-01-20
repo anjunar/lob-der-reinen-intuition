@@ -57,9 +57,9 @@ extrahiert und gedreht, bis sie präzise sind. Nicht die meisten, nicht
 die lautesten, nicht die emotionalsten, nur die tragfähigsten. Das
 erzeugt Qualität. Die Versions-Schicht — keine Erkenntnis wird final;
 sie wird versioniert, kontextualisiert, überprüft, angepasst.
-Versionierung verhindert Dogma und erlaubt Evolution. Die
-Kontext-Schicht — jede klare Erkenntnis braucht einen Kontext, damit
-sie richtig verstanden wird. Ein System ohne Kontext zerfällt in
+Versionierung verhindert Dogma und erlaubt Evolution. Die Kontext-
+Schicht — jede klare Erkenntnis braucht einen Kontext, damit sie
+richtig verstanden wird. Ein System ohne Kontext zerfällt in
 Missverständnisse. Ein System mit Kontext wird zu einem lebendigen
 Archiv. Die Verbindungs-Schicht — Wissen wird vernetzt über Linien,
 Begriffe, Beziehungen, Themenfelder. So entsteht ein intelligentes

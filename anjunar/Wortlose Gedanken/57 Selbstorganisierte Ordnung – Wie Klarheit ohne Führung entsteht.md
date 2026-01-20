@@ -63,20 +63,20 @@ Autorität. Der Raum entscheidet — nicht die Menschen. Das ist die
 Weiterführung dessen, was im Kapitel über kollektive Intuition
 beschrieben wurde.
 
-Was zerstört selbstorganisierte Ordnung? Drei Dinge: Lärm,
-Ego-Dynamiken und unklare Architektur. Wenn die Architektur bricht,
-müssen Menschen eingreifen. Wenn Menschen eingreifen müssen, verliert
-das System seine natürliche Ordnung. Darum ist gute Architektur die
+Was zerstört selbstorganisierte Ordnung? Drei Dinge: Lärm, Ego-
+Dynamiken und unklare Architektur. Wenn die Architektur bricht, müssen
+Menschen eingreifen. Wenn Menschen eingreifen müssen, verliert das
+System seine natürliche Ordnung. Darum ist gute Architektur die
 einzige wahre Führung.
 
-Für Technology Speaks ist das entscheidend, weil du keinen
-„Moderator-Staat“ willst. Keine Polizei. Keine Bürokratie. Keine
-Admin-Macht. Du willst ein System, das sich selbst trägt. Ein System,
-das durch Klarheit und Resonanz mehr Ordnung erzeugt als jede
-Hierarchie. Das ist möglich — aber nur, wenn die Architektur präzise
-ist. Ein selbstorganisiertes System ist skalierbar, stabil, ruhig,
-klar, leicht, resilient, tief, nicht manipulierbar und nicht
-zerfallend. Das ist das Ziel.
+Für Technology Speaks ist das entscheidend, weil du keinen „Moderator-
+Staat“ willst. Keine Polizei. Keine Bürokratie. Keine Admin-Macht. Du
+willst ein System, das sich selbst trägt. Ein System, das durch
+Klarheit und Resonanz mehr Ordnung erzeugt als jede Hierarchie. Das
+ist möglich — aber nur, wenn die Architektur präzise ist. Ein
+selbstorganisiertes System ist skalierbar, stabil, ruhig, klar,
+leicht, resilient, tief, nicht manipulierbar und nicht zerfallend. Das
+ist das Ziel.
 
 Der tiefste Punkt: Wahre Ordnung entsteht nicht durch Führung. Wahre
 Ordnung entsteht durch Stimmigkeit. Wenn ein Raum aus sich heraus
