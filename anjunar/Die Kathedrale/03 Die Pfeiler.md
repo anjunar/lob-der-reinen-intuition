@@ -88,3 +88,6 @@ Architektur, die aus Beziehung, Klarheit, Raum und Wandlung besteht.
 Diese fünf Pfeiler sind keine Ideen. Sie sind Kräfte, und sie wirken,
 ob man sich ihnen widmet oder nicht. Doch wer sie erkennt, der baut an
 sich selbst nicht mehr blind. Er baut mit Bewusstsein.
+
+---
+[← Die Krypta](02%20Die%20Krypta.md) | [Inhaltsverzeichnis](01%20Einleitung.md) | [Weiter: Die Hauptschiffe →](04%20Die%20Hauptschiffe.md)
