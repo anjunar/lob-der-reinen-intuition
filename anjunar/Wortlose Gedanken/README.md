@@ -1,4 +1,18 @@
-# Inhaltsverzeichnis
+# Wortlose Gedanken
+
+Dieses Werk führt in eine stille, klare Sprache der Intuition und zeigt, wie innere
+Wahrheit im Alltag, in Beziehungen und in größeren Systemen wirksam wird. Die Kapitel
+folgen keinem linearen Lehrplan, sondern bilden einen wachsenden Bogen vom persönlichen
+Erkennen bis zur kollektiven Bewusstseinskultur. Am besten liest du langsam, in Resonanz,
+und lässt einzelne Kapitel nachklingen, statt alles am Stück zu konsumieren. Erwarte weniger
+Definitionen als Richtungsimpulse: Es geht um Stimmigkeit, nicht um Beweise.
+
+**Empfohlener Einstieg (3 Kapitel):**
+- [06 Stille als Ursprung – Warum Klarheit aus Nicht-Handeln entsteht](<06 Stille als Ursprung – Warum Klarheit aus Nicht-Handeln entsteht.md>)
+- [12 Mut zur Stimmigkeit – Warum der richtige Weg selten bequem beginnt](<12 Mut zur Stimmigkeit – Warum der richtige Weg selten bequem beginnt.md>)
+- [20 Der verborgene Ursprung – Wie das Formlose das Denken trägt](<20 Der verborgene Ursprung – Wie das Formlose das Denken trägt.md>)
+
+## Inhaltsverzeichnis
 
 - [01 Einleitung](<01 Einleitung.md>)
 - [02 Die stille Entscheidung – Wie Intuition im Alltag wirkt](<02 Die stille Entscheidung – Wie Intuition im Alltag wirkt.md>)
