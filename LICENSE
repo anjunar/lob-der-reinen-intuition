@@ -1,0 +1,54 @@
+PROPRIETARY LICENSE — MAXIMUM RESTRICTION — ALL RIGHTS RESERVED
+
+Copyright (c) 2026 Patrick Bittner
+
+ALL RIGHTS RESERVED.
+
+This repository and all associated contents (including, but not limited to: source code,
+text, documentation, images, concepts, structure, and any other files) are proprietary
+and confidential intellectual property.
+
+1) NO LICENSE GRANTED
+No license or rights of any kind are granted under any intellectual property rights,
+whether by implication, estoppel, or otherwise. You may not use the Software for any
+purpose unless you have received prior written permission from the copyright holder.
+
+2) VIEWING ONLY
+Permission is granted solely to view the contents of this repository via a web browser
+or Git client for informational purposes. Any other use is strictly prohibited.
+
+3) STRICTLY PROHIBITED USES
+Without explicit prior written permission, you may NOT, in whole or in part:
+- copy, reproduce, download, or store the Software (except as technically required
+  for passive viewing)
+- fork, clone, mirror, or otherwise replicate the repository
+- modify, adapt, translate, merge, create derivative works, or extract parts of it
+- publish, distribute, transmit, broadcast, sublicense, sell, rent, lease, lend,
+  or otherwise make available to any third party
+- use the Software in production, in services, in client work, in consulting,
+  or for any commercial purpose
+- reverse engineer, decompile, disassemble, or attempt to derive ideas, algorithms,
+  or designs from the Software
+- scrape, crawl, index, or mine the repository content with automated tools
+
+4) AI / ML / DATASET RESTRICTION
+You may NOT use the Software (or any part of it) for training, fine-tuning,
+evaluation, prompting-at-scale, embedding generation, dataset creation, retrieval
+augmentation, or any other machine learning / artificial intelligence purposes,
+including for internal research, commercial use, or open publication.
+
+5) NO PATENT OR TRADEMARK RIGHTS
+No patent rights, trademark rights, or other rights are granted.
+
+6) TERMINATION
+Any unauthorized use immediately terminates any permission to view the repository.
+
+7) DISCLAIMER
+THE SOFTWARE IS PROVIDED "AS IS", WITHOUT WARRANTY OF ANY KIND, EXPRESS OR IMPLIED,
+INCLUDING BUT NOT LIMITED TO THE WARRANTIES OF MERCHANTABILITY, FITNESS FOR A
+PARTICULAR PURPOSE, AND NONINFRINGEMENT. IN NO EVENT SHALL THE COPYRIGHT HOLDER BE
+LIABLE FOR ANY CLAIM, DAMAGES, OR OTHER LIABILITY, WHETHER IN AN ACTION OF CONTRACT,
+TORT, OR OTHERWISE, ARISING FROM, OUT OF, OR IN CONNECTION WITH THE SOFTWARE OR THE
+USE OR OTHER DEALINGS IN THE SOFTWARE.
+
+Licensing inquiries: contact the copyright holder.
