@@ -1,0 +1,17 @@
+# Warum Gott schweigt
+
+Es gibt eine Treppe, die nicht gebaut wurde und doch seit Anbeginn steht, eine Bewegung des Bewusstseins, die sich wie ein leiser Aufstieg durch die Tiefen des Seins zieht. Ganz unten beginnt alles mit Wissen. Dort ist die Welt fest, klar umrissen, erklärbar. Man sammelt Fakten wie Steine, ordnet sie zu Mauern, in denen man sich sicher fühlt. Die Dinge scheinen eindeutig, und der eigene Verstand reicht aus, um Ordnung zu schaffen. Wissen genügt, solange man auf dieser unteren Stufe lebt.
+
+Doch mit jedem Schritt nach oben verändert sich etwas, das man nicht steuern kann. Die Stufen werden feiner, durchlässiger, und das Herz wird weicher. Die Antworten, die früher wie Felsen schienen, beginnen zu bröckeln. Sie entziehen sich, verlieren ihre feste Form, und das Wissen selbst wird leicht, beinahe gewichtslos, als könnte man es mit dem Hauch eines Atems zerstreuen. Irgendwann kommt der Moment, in dem man nicht mehr nach Antworten sucht, sondern nach dem Raum, in dem Antworten sich auflösen dürfen. Dort beginnt das Nicht-Wissen, jenes stille Tor, hinter dem das Denken verstummt.
+
+An diesem Tor spricht Gott nicht. Nicht, weil Er abgewandt wäre oder fern, sondern weil das Schweigen die Form ist, in der das Absolute sich offenbart. Was sollte gesagt werden, wenn nichts fehlt? Worte sind Werkzeuge für jene, die noch getrennt suchen. Doch jenseits des Suchens wird Sprache zu einem Schleier, der mehr verdeckt als enthüllt. In der Stille aber offenbart sich das Ganze, nicht als Gedanke, sondern als Gegenwart. Gott schweigt, weil Er erfüllt ist; weil Sein Sein genügt. Das Schweigen ist nicht Leere, sondern die vollkommene Form der Nähe.
+
+Vielleicht ist in diesem Schweigen ein Lachen verborgen, ein leises, feines Lachen, das man nicht hört, sondern spürt, wie eine Welle, die das Universum durchzieht. Ein kosmischer Witz, der besagt, dass der Gipfel allen Wissens das Nicht-Wissen ist, nicht als Mangel, sondern als Freiheit. Es ist das Erkennen, dass Wissen immer nur Andeutung ist, Raster, Kontur – und dass die Wahrheit jenseits aller Konturen liegt.
+
+So verweilt Gott in der Stille, während wir Menschen uns noch mühen, Worte zu finden für etwas, das nicht gesprochen werden kann. Wir ringen mit Begriffen, suchen nach Formeln, bauen Theologien wie Leitern zwischen Himmel und Erde, und doch berühren wir erst im Verstummen die eigentliche Höhe.
+
+Es war einmal, jenseits von Raum und Zeit, ein Gott, der jede Ebene des Bewusstseins durchschritten hatte. Er kannte alle Fragen, weil Er sie selbst gestellt hatte, und alle Antworten, weil sie in Ihm ruhten. Er wusste um die Sterne und ihr inneres Feuer, und er wusste um die Herzen, die im Schweigen ihre tiefste Sprache sprechen. Als Er die oberste Ebene erreichte, blieb Er stehen. Vor Ihm lag die Treppe des Seins, spiralförmig, unendlich, jede Stufe ein Blickwinkel, jeder Blickwinkel ein Versuch, das Ganze zu fassen.
+
+Er sah hinab auf all jene, die suchten. Und Er dachte: „Warum noch reden? Sie würden es nicht hören können.“ Nicht weil sie unwürdig wären, sondern weil Worte nicht dorthin reichen, wohin Bewusstsein selbst reisen muss. Denn jede Stufe kann nur in der Weise hören, in der sie fähig ist zu hören. Und so schwieg Er – nicht als Entzug, sondern als Geschenk.
+
+Am Ende ist dieses Schweigen kein Verlust, sondern die tiefste Form der Gegenwart. Es ist die Freiheit, in Stille zu wohnen, ohne Fragen, ohne Antworten, ohne Herrschaft des Denkens. Nur Sein – das Erste, das Letzte und das einzige Wirkliche. 
