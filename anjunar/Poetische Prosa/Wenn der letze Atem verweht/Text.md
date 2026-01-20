@@ -1,6 +1,7 @@
 # Wenn der letzte Atem verweht
 
 Wenn der letzte Atem verweht, bleibt nichts von Namen und Geschichte.
+
 Doch etwas geht weiter – leise, unsichtbar, wie ein Funken, der nicht
 erlischt, sondern nur die Flamme wechselt.
 

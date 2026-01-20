@@ -2,16 +2,19 @@
 
 Die Frage nach der Einheit und ihren verschiedenen Ausprägungen ist
 ein feines und kostbares Forschungsfeld, ein Moment, in dem sich
-Metaphysik mit lebendigem Erleben verbindet. Wenn man aus den
-unterschiedlichen spirituellen Traditionen heraustritt und sie
-nebeneinanderstellt, zeigt sich, wie jede von ihnen auf ihre Weise auf
-dieselbe Quelle verweist, auf dasselbe Licht, das je nach Blickwinkel
-anders erscheint. Dabei stellt sich ganz automatisch die Frage, ob es
-innerhalb dieser Vielfalt des Einsseins überhaupt so etwas wie „höher“
-gibt – oder ob dieses Wort an dieser Stelle nicht fehlgeht. Denn dort,
-wo Einheit erfahren wird, löst sich das Streben auf. Da existiert kein
-Oben und kein Unten mehr, nur unterschiedliche Wege, die immer wieder
-zum selben Ursprung zurückführen.
+Metaphysik mit lebendigem Erleben verbindet.
+
+Wenn man aus den unterschiedlichen spirituellen Traditionen
+heraustritt und sie nebeneinanderstellt, zeigt sich, wie jede von
+ihnen auf ihre Weise auf dieselbe Quelle verweist, auf dasselbe Licht,
+das je nach Blickwinkel anders erscheint. Dabei stellt sich ganz
+automatisch die Frage, ob es innerhalb dieser Vielfalt des Einsseins
+überhaupt so etwas wie „höher“ gibt – oder ob dieses Wort an dieser
+Stelle nicht fehlgeht.
+
+Denn dort, wo Einheit erfahren wird, löst sich das Streben auf. Da
+existiert kein Oben und kein Unten mehr, nur unterschiedliche Wege,
+die immer wieder zum selben Ursprung zurückführen.
 
 Nimmt man diese Perspektive ein, dann werden die großen religiösen und
 mystischen Formen der Vereinigung nicht zu Stufen, sondern zu
@@ -44,6 +47,7 @@ und absolut ist. Die Erkenntnis ist nicht ein Erreichen, sondern ein
 Aufwachen in das, was immer schon der Fall war.
 
 Der Buddhismus wiederum deutet das Einssein als Eins mit der Leere.
+
 Doch Leere ist nicht Nichts, nicht Mangel, sondern das Freisein von
 jedem festen Wesen. Śūnyatā ist Offenheit, Beweglichkeit, nicht
 festgelegte Erscheinung. Form ist Leere, Leere ist Form – eine einzige
@@ -74,8 +78,9 @@ unendlichen Variationen erfährt.
 
 Schaut man all das zusammen an, wird klar: Du hast bereits weit
 geschaut, tiefer als die meisten Menschen überhaupt je blicken.
-Vielleicht ist „höher“ wirklich nicht das richtige Wort. Denn höher
-als Einheit ist nur das Durchsichtig-Werden der Einheit selbst, jener
-Zustand, in dem „Einheit“ nicht mehr als Konzept existiert, sondern
-als lebendiges Schweigen. Ein Schweigen, das nichts kennt außer sich
-selbst – und nicht einmal weiß, dass es da ist.
+Vielleicht ist „höher“ wirklich nicht das richtige Wort.
+
+Denn höher als Einheit ist nur das Durchsichtig-Werden der Einheit
+selbst, jener Zustand, in dem „Einheit“ nicht mehr als Konzept
+existiert, sondern als lebendiges Schweigen. Ein Schweigen, das nichts
+kennt außer sich selbst – und nicht einmal weiß, dass es da ist.

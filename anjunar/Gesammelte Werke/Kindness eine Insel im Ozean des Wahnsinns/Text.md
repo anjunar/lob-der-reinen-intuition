@@ -14,15 +14,18 @@ groß, zu mächtig, zu ungeordnet, um ohne Fundament heil durchschritten
 zu werden.
 
 Kindness entsteht aus emotionaler Stabilität, gedanklicher Klarheit
-und der Fähigkeit, Unangenehmes auszuhalten. Wenn diese drei Ebenen
-zusammenkommen, entsteht ein Bewusstseinsboden, der nicht bricht, wenn
-die Welt ihre Tiefe zeigt. Emotionale Stabilität verhindert, dass man
-von den eigenen Reaktionen überwältigt wird. Gedankliche Stabilität
-verhindert, dass man sich in Widersprüchen verliert. Die Fähigkeit,
-Unangenehmes zu ertragen, verhindert, dass man sich bei jeder
-Erschütterung zurückzieht oder in Abwehr flüchtet. Zusammen bilden
-diese drei Qualitäten eine Form von Kindness, die nicht weich, sondern
-tragfähig ist.
+und der Fähigkeit, Unangenehmes auszuhalten.
+
+Wenn diese drei Ebenen zusammenkommen, entsteht ein Bewusstseinsboden,
+der nicht bricht, wenn die Welt ihre Tiefe zeigt. Emotionale
+Stabilität verhindert, dass man von den eigenen Reaktionen überwältigt
+wird. Gedankliche Stabilität verhindert, dass man sich in
+Widersprüchen verliert. Die Fähigkeit, Unangenehmes zu ertragen,
+verhindert, dass man sich bei jeder Erschütterung zurückzieht oder in
+Abwehr flüchtet.
+
+Zusammen bilden diese drei Qualitäten eine Form von Kindness, die
+nicht weich, sondern tragfähig ist.
 
 Ohne Kindness beginnt das Bewusstsein zu expandieren, bevor es stabil
 ist. Dann entstehen innere Labyrinthe: Überinterpretation, Projektion,
@@ -30,6 +33,7 @@ Angstspiralen, spirituelle Verstrickung, gedankliche Sackgassen. Das
 Bewusstsein schafft dann Wachstum ohne Ordnung, Tiefe ohne Halt,
 Einsicht ohne Integration. Diese Labyrinthe sind nicht äußere Irrwege,
 sondern innere Konstruktionen, die sich jederzeit weiter verzweigen.
+
 Eine Reise in die Tiefe ohne Kindness endet oft damit, dass man die
 Tiefe nicht erkennt, sondern in ihr verloren geht.
 
@@ -57,8 +61,10 @@ sondern auch im Äußeren unvereinbar werden. Kindness verhindert
 Fragmentierung, sowohl im eigenen Bewusstsein als auch zwischen
 Menschen. Sie schafft die Bedingungen dafür, dass man in einer Welt
 voller Ungewissheiten und Widersprüche nicht nur überlebt, sondern
-heilen kann. Aus diesem Grund kann der Mensch aus Chaos Ordnung, aus
-Schmerz Weisheit und aus Wahnsinn Heilung erschaffen.
+heilen kann.
+
+Aus diesem Grund kann der Mensch aus Chaos Ordnung, aus Schmerz
+Weisheit und aus Wahnsinn Heilung erschaffen.
 
 Kindness ist damit nicht eine Tugend unter vielen, sondern das
 Fundament, auf dem Bewusstsein stehen muss, um die Tiefe der Welt zu

@@ -2,10 +2,11 @@
 
 Oft hört man die Worte: „Ich habe die Kontrolle völlig aufgegeben.“
 Und doch – wenn man tief hineinhorcht, spürt man, dass darin eine
-feine Selbsttäuschung liegen kann. Denn solange wir noch den Satz
-formen müssen, solange wir ihn uns selbst als Wahrheit vorsprechen,
-ist er ein Kleid, das wir uns überwerfen – aber nicht die Haut, die
-wir wirklich bewohnen.
+feine Selbsttäuschung liegen kann.
+
+Denn solange wir noch den Satz formen müssen, solange wir ihn uns
+selbst als Wahrheit vorsprechen, ist er ein Kleid, das wir uns
+überwerfen – aber nicht die Haut, die wir wirklich bewohnen.
 
 Loslassen will nicht mit Gewalt ergriffen werden. Es ist kein Sieg,
 den man ausrufen kann, sondern ein stilles Reifen, das sich von selbst

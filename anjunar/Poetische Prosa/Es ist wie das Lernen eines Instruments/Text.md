@@ -5,7 +5,8 @@ Alles erfordert Mühe, Bewusstsein, Konzentration.
 
 Du übst. Wiederholst.
 
-Lernst, Fehler zu erkennen und zu korrigieren. Dein Spiel ist bewusst,
+Lernst, Fehler zu erkennen und zu korrigieren. Dein Spiel ist
+bewusst,
 geformt, abhängig von deinem Wissen.
 
 Dann kommt der Moment, wo du die Musik nicht mehr aus Noten liest,
@@ -27,4 +28,5 @@ Du bist das Instrument. Und aus der Stille des Selbst erklingt eine
 Melodie, die schon immer war.
 
 Das ist das Sprechen aus dem Göttlichen, nicht aus Wissen, nicht aus
-Liebe allein, sondern aus dem tiefen Atem des Seins, der alles bewegt.
+Liebe allein, sondern aus dem tiefen Atem des Seins, der alles
+bewegt.

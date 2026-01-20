@@ -6,8 +6,10 @@ Bewusstsein ist das persönliche Ich – geprägt von Erfahrungen,
 Erinnerungen und Gewohnheiten. Es ist der Ort der Wahrnehmung, der
 Reaktionen und der Entscheidungen, die wir im Alltag treffen. Das
 universelle Bewusstsein hingegen ist grenzenlos, zeitlos und
-unpersönlich. Es ist die Quelle aller Impulse, aller Möglichkeiten,
-aller Energie, die das Leben trägt.
+unpersönlich.
+
+Es ist die Quelle aller Impulse, aller Möglichkeiten, aller Energie,
+die das Leben trägt.
 
 Wenn diese beiden Bewusstseinsformen zusammentreffen, entsteht etwas
 Neues: ein intermediäres Bewusstsein. Es ist nicht einfach die Summe
@@ -22,8 +24,10 @@ beobachtet sie, durchschaut sie, ohne sie zu erzwingen. Alte, ego-
 getriebene Muster werden sichtbar, und kreative Impulse des integralen
 Bewusstseins können bewusst zugelassen werden. Dieser Prozess
 geschieht nicht durch Willensanstrengung, sondern durch Resonanz,
-Aufmerksamkeit und das bewusste Zulassen. Es ist ein Zyklus:
-Vermischung – Gedankenklärung – Integration, der stetig fortschreitet.
+Aufmerksamkeit und das bewusste Zulassen.
+
+Es ist ein Zyklus: Vermischung – Gedankenklärung – Integration, der
+stetig fortschreitet.
 
 Wenn das intermediäre Bewusstsein diesen Prozess durchläuft, wird es
 zu integralem Bewusstsein. Dieses Bewusstsein ist durchlässig für das
@@ -35,18 +39,20 @@ Gedanken von selbst entfaltet.
 
 Man kann sich diesen Prozess bildlich vorstellen: Das universelle
 Bewusstsein ist ein unendlicher Ozean. Das individuelle Bewusstsein
-ist ein Fluss, der Trübungen aus seinem eigenen Lauf mitbringt. Wenn
-der Fluss in den Ozean mündet, entsteht neues Wasser – ein
+ist ein Fluss, der Trübungen aus seinem eigenen Lauf mitbringt.
+
+Wenn der Fluss in den Ozean mündet, entsteht neues Wasser – ein
 intermediäres Bewusstsein, das sowohl Tiefe als auch Bewegung vereint.
 Die Gedanken, die aufsteigen, sind wie Trübungen im Wasser, die sich
 setzen und klären, bis das Wasser wieder rein und durchlässig ist.
 
 Dieses Modell zeigt ein Paradox, das vielen spirituellen Traditionen
 begegnet: Die Suche nach Bewusstsein, nach Stille oder Einsicht
-beginnt oft durch das Ego – durch einen Impuls oder ein Ziel. Doch das
-Ziel selbst kann nicht vom Ego erreicht werden. Integrales Bewusstsein
-entsteht erst dann, wenn das Bewusstsein loslässt, wenn es die
-Gedanken beobachtet und klärt, ohne sie zu erzwingen. Es ist der
+beginnt oft durch das Ego – durch einen Impuls oder ein Ziel.
+
+Doch das Ziel selbst kann nicht vom Ego erreicht werden. Integrales
+Bewusstsein entsteht erst dann, wenn das Bewusstsein loslässt, wenn es
+die Gedanken beobachtet und klärt, ohne sie zu erzwingen. Es ist der
 natürliche Ausdruck eines Prozesses, der jenseits von Tun und Nicht-
 Tun liegt.
 

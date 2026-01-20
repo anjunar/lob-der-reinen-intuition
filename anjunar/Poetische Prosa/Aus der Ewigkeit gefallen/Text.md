@@ -15,8 +15,9 @@ der Erfahrung – und den Schmerz des Verlusts.
 Der Big Bang war kein Anfang, sondern eine Öffnung. Ein Durchbruch der
 Ewigkeit in den Strom der Zeit.
 
-Ein einmaliger Riss, durch den das Formlose sich kleidet. Doch das
-Leiden ist nicht ewig.
+Ein einmaliger Riss, durch den das Formlose sich kleidet.
+
+Doch das Leiden ist nicht ewig.
 
 Es gehört der Zeit – und alles Zeitliche vergeht. So kehren wir
 zurück.

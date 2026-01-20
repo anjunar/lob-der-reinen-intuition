@@ -5,9 +5,10 @@ durchdringt. Es ist das Licht, mit dem Gott sieht.
 
 Kein grelles Urteil, keine suchende Flamme. Nur Vertrauen.
 
-Weit wie der Himmel, tief wie das erste Schweigen. Wenn Gott schaut,
-dann nicht mit Augen aus Fleisch, sondern mit dem sanften Blick des
-Vertrauens.
+Weit wie der Himmel, tief wie das erste Schweigen.
+
+Wenn Gott schaut, dann nicht mit Augen aus Fleisch, sondern mit dem
+sanften Blick des Vertrauens.
 
 Ein Blick, der nicht misst, nicht wägt, nicht fordert – sondern sieht,
 weil er kennt. Und was er kennt, ist nicht das, was war oder was wird,

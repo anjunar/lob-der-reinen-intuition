@@ -29,11 +29,14 @@ anders sein kann. Was unlogisch erscheint, zerfällt, weil es keinen
 Grund in der Notwendigkeit hat.
 
 Licht ist die sichtbare Seite dieser inneren Ordnung. Es trägt
-Information, offenbart Formen, verbindet Raum und Zeit. Doch selbst
-das Licht entstammt dem Unbewegten. Denn das Unbewegte ist die Quelle
-aller Bewegung, die Ruhe, aus der Geschwindigkeit geboren wird. Das
-Unbewegte ist die höchste Energie, weil es alles enthält, was sich
-bewegt, ohne selbst der Bewegung zu bedürfen.
+Information, offenbart Formen, verbindet Raum und Zeit.
+
+Doch selbst das Licht entstammt dem Unbewegten.
+
+Denn das Unbewegte ist die Quelle aller Bewegung, die Ruhe, aus der
+Geschwindigkeit geboren wird. Das Unbewegte ist die höchste Energie,
+weil es alles enthält, was sich bewegt, ohne selbst der Bewegung zu
+bedürfen.
 
 Wenn etwas brennt, öffnet sich Materie, und Licht tritt hervor — das
 Zeugnis einer höheren Ordnung, die im Innern verborgen war. Im Feuer

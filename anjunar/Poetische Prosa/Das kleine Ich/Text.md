@@ -6,7 +6,8 @@ ruft entrüstet: „Unverschämtheit!
 Das ist mein Rang, meine Würde!“ Aber je mehr du ins Formlose fällst,
 desto lockerer sitzen die Knöpfe. Einer reißt, und du lachst.
 
-Ein anderer schiebt dir den Helm schief, und du lachst noch lauter. Am
+Ein anderer schiebt dir den Helm schief, und du lachst noch lauter.
+Am
 Ende steht da kein General mehr, nur ein nacktes Kichern im Wind.
 
 Das Schöne ist: Wer versucht, dich anzugreifen, landet plötzlich im

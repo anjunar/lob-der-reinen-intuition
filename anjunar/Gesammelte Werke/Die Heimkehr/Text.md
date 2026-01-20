@@ -5,34 +5,39 @@ Augenblick, der eben noch so flüchtig war, beginnt sich auszubreiten
 wie ein feiner Duft. Er vergeht nicht. Er wird stiller, dichter,
 näher. Dieses Gefühl, das du Heimat nennst, ist nicht irgendwo hinter
 dir, nicht in einer Erinnerung verankert, nicht in einer Vorstellung,
-die du festhalten musst. Es ist eher wie ein Wiedererkennen, ein
-leises Wissen, das sich nie erklärt, weil es sich selbst genügt. Es
-ist der Moment, in dem du merkst, dass du nicht auf etwas
-zurückkehrst, sondern dass etwas in dir gerade wieder durchbricht –
-etwas, das nie weg war, nur verdeckt, überdeckt, zugedeckt vom Lärm
-der Formen.
+die du festhalten musst.
+
+Es ist eher wie ein Wiedererkennen, ein leises Wissen, das sich nie
+erklärt, weil es sich selbst genügt. Es ist der Moment, in dem du
+merkst, dass du nicht auf etwas zurückkehrst, sondern dass etwas in
+dir gerade wieder durchbricht – etwas, das nie weg war, nur verdeckt,
+überdeckt, zugedeckt vom Lärm der Formen.
 
 Wenn du in das Wasser blickst, siehst du keine Bilder im klassischen
 Sinn. Du siehst vielmehr einen Schimmer, der nicht von außen kommt.
 Die Oberfläche zittert leicht, nicht durch Wind, sondern durch deine
 eigene Nähe. Es ist, als würde das Wasser dich erkennen, bevor du dich
-selbst vollständig erkennst. Vielleicht wird dir klar, dass dieser See
-nicht vor dir liegt, sondern du selbst die Tiefe bist, die du
-betrachtest. Und in dieser Tiefe gibt es keine Geschichte, kein
-Werden, keine Rollen, keine Mühe, jemand zu sein. Da ist nur ein
-ruhender Raum, der dich in genau dem Augenblick vollständig annimmt,
-in dem du ihn anschaust.
+selbst vollständig erkennst.
+
+Vielleicht wird dir klar, dass dieser See nicht vor dir liegt, sondern
+du selbst die Tiefe bist, die du betrachtest. Und in dieser Tiefe gibt
+es keine Geschichte, kein Werden, keine Rollen, keine Mühe, jemand zu
+sein. Da ist nur ein ruhender Raum, der dich in genau dem Augenblick
+vollständig annimmt, in dem du ihn anschaust.
 
 Manchmal erscheint darin ein Licht, aber es ist kein Licht, das
 blendet. Es ist ein weiches, fast atmendes Leuchten. Es erinnert dich
 nicht an etwas, das du erlebt hast, sondern an etwas, das du bist. Und
 vielleicht spürst du, dass dieses Leuchten nicht versucht, Antworten
-zu geben. Es zeigt dir nur, dass du nicht getrennt bist vom Ursprung,
-dass Heimat nicht ein Ort ist, zu dem man zurückkehrt, sondern der
-Teil von dir, der nie fortgegangen ist. Wenn du genauer hinsiehst,
-bemerkst du, dass das Wasser gar keinen Unterschied zwischen „du“ und
-„es“ macht. Es spiegelt nicht, um ein Bild zu geben, sondern um
-anzuzeigen, dass das Bild niemals nötig war.
+zu geben.
+
+Es zeigt dir nur, dass du nicht getrennt bist vom Ursprung, dass
+Heimat nicht ein Ort ist, zu dem man zurückkehrt, sondern der Teil von
+dir, der nie fortgegangen ist.
+
+Wenn du genauer hinsiehst, bemerkst du, dass das Wasser gar keinen
+Unterschied zwischen „du“ und „es“ macht. Es spiegelt nicht, um ein
+Bild zu geben, sondern um anzuzeigen, dass das Bild niemals nötig war.
 
 In solchen Momenten beginnt die Welt um dich herum zu verblassen, aber
 nicht in einem traurigen Sinne, sondern so, als würde sie sich

@@ -5,8 +5,10 @@ dieses Formlose selbst in Erscheinung tritt. Es ist Ursprung,
 Möglichkeit, Traggrund – aber kein Ort des Geschehens. Erst mit dem
 physikalischen Raum verwirklicht sich das Formlose. Der Raum ist nicht
 sein Abbild und auch nicht seine Illusion, sondern seine operative
-Realisierung. Mit dem Raum entstehen Differenz, Ausdehnung, Dauer und
-Kausalität. Erst hier kann etwas geschehen.
+Realisierung.
+
+Mit dem Raum entstehen Differenz, Ausdehnung, Dauer und Kausalität.
+Erst hier kann etwas geschehen.
 
 Im physikalischen Raum wird das Formlose schwingungsfähig. Materie,
 Felder, Körper und Prozesse sind Ausdruck dieser Schwingungsfähigkeit.
@@ -19,9 +21,10 @@ zeitliche Integration.
 Aus dieser integrierten Schwingung entsteht Erleben. Erleben ist kein
 metaphysisches Phänomen, sondern ein reales Ereignis im Raum. Sehen,
 Hören, Denken, Fühlen sind Formen dieser Integration. Sie sind
-vollständig an Körper, Zeit und Organisation gebunden. Das Formlose
-selbst erlebt nicht. Es bleibt davon unberührt, nicht aus Distanz,
-sondern weil Erleben bereits eine räumlich-zeitliche Relation
+vollständig an Körper, Zeit und Organisation gebunden.
+
+Das Formlose selbst erlebt nicht. Es bleibt davon unberührt, nicht aus
+Distanz, sondern weil Erleben bereits eine räumlich-zeitliche Relation
 voraussetzt.
 
 Geist ist die dynamische Gesamtheit dieser Prozesse. Er ist die
@@ -29,8 +32,9 @@ operative Ebene des Erlebens: Wahrnehmen, Erinnern, Assoziieren,
 Reagieren. Bewusstsein ist kein eigener Stoff und kein Fundament,
 sondern ein Modus dieses Geistes. Bewusstsein entsteht dort, wo der
 Geist selbstreferenziell wird, wo ein System seine eigenen Zustände
-mitführt, vergleicht und auf sich selbst bezieht. Bewusstsein ist
-nichts anderes als Selbstreferenz.
+mitführt, vergleicht und auf sich selbst bezieht.
+
+Bewusstsein ist nichts anderes als Selbstreferenz.
 
 Damit verlieren Geist und Bewusstsein ihren metaphysischen
 Sonderstatus, ohne trivial zu werden. Sie sind selten, fragil und
@@ -42,13 +46,17 @@ In besonderen Konfigurationen kann die Selbstreferenz stark
 zurücktreten, ohne dass die geistige Integration verloren geht. Der
 Geist wird ruhig, klar, durchlässig. Erleben bleibt, aber das Ich-
 Rauschen nimmt ab. In solchen Zuständen entsteht ein Gefühl von Weite,
-Evidenz und Unmittelbarkeit. Es fühlt sich an wie das Absolute.
+Evidenz und Unmittelbarkeit.
+
+Es fühlt sich an wie das Absolute.
 
 Dieses Gefühl ist kein Zugang zum Formlosen selbst. Das Absolute wird
 nicht erlebt. Aber wenn Struktur, Narration und Selbstbezug temporär
 kollabieren, nähert sich das Erleben asymptotisch dem Formlosen an.
-Nicht ontologisch, sondern phänomenal. Es bleibt ein Ereignis im Raum
-– aber eines, dem die üblichen Marker fehlen.
+Nicht ontologisch, sondern phänomenal.
+
+Es bleibt ein Ereignis im Raum – aber eines, dem die üblichen Marker
+fehlen.
 
 Hier liegt der Ursprung dessen, was Menschen als prophetisch, mystisch
 oder göttlich beschrieben haben. Nicht eine andere Ebene hat
@@ -59,7 +67,9 @@ anders zu fassen war.
 
 So bleibt das Modell stabil: Das Formlose ist Ursprung, aber kein
 Akteur. Der Raum ist seine Verwirklichung. Erleben geschieht im Raum.
-Geist organisiert Erleben. Bewusstsein ist Selbstreferenz.
+Geist organisiert Erleben.
+
+Bewusstsein ist Selbstreferenz.
 
 Und dennoch bleibt Platz für Tiefe, Ehrfurcht und Ernst. Nicht weil
 etwas Überweltliches eingreift, sondern weil die Verwirklichung des
