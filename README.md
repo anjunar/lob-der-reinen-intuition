@@ -1,11 +1,4 @@
-# [Anjunar - Lob der reinen Intuition](<anjunar/README.md>)
-
-## Inhaltsverzeichnis
-
-- [Anjunar - Lob der reinen Intuition](<anjunar/README.md>)
-  - [Werk 1. Wortlose Gedanken](<anjunar/Wortlose%20Gedanken/README.md>)
-  - [Werk 2. Die Kathedrale](<anjunar/Die%20Kathedrale/README.md>)
-  - [Werk 3. Gesammelte Werke](<anjunar/Gesammelte%20Werke/README.md>)
+# [Anjunar - Lob der reinen Intuition (Click)](<anjunar/README.md>)
 
 Dieses Buch ist kein klassisches Sachbuch und auch keine
 durchkomponierte Erzählung. Es ist eher eine Sammlung von Texten,
