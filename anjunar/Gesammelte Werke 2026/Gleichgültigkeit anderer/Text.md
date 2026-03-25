@@ -1,0 +1,7 @@
+Inmitten einer Welt von starren Blicken, in der die Menschen wie Schatten durch die Straßen wandeln, steht sie: ein Lichtstrahl im Grau. Nicht laut, nicht grell, nur ein stilles Glühen, das aus dem Inneren kommt. Ihr Blick ist aufwärts gerichtet, ihre Augen weit, als wollten sie das Unsichtbare sehen, das immer da ist – das pulsierende Wunder, das Leben selbst.
+
+Um sie herum verharren die anderen in mechanischer Routine, gleichgültig gegenüber der Tiefe, die alles durchdringt. Sie leben, ja, sie atmen, sie bewegen sich – doch in ihren Gesichtern fehlt die Resonanz des Staunens. Es ist nicht das Fehlen von Schmerz oder Freude, sondern das Fehlen der Frage: „Warum bin ich hier? Was bedeutet dieses Dasein?“
+
+Und gerade in dieser Leere wird die Kraft des Staunens sichtbar. Es ist keine Fähigkeit, die man erlernen kann wie eine Fertigkeit, kein Moment, den man erzwingen kann. Es ist ein innerer Horizont, der sich öffnet, sobald man das Leben als etwas Unendlich Kostbares erkennt, selbst in den banalsten Augenblicken.
+
+So lehrt das Bild: Das Staunen selbst ist wie ein lebendiger Funke im Herzen. Wer es trägt, erleuchtet nicht nur sich selbst, sondern bricht die Schatten der Gleichgültigkeit um ihn herum. Es ist nicht die ganze Welt, die leuchten muss – nur ein einziges Staunen reicht, um die Dunkelheit zu spiegeln und das Unsichtbare sichtbar zu machen.

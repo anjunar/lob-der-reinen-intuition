@@ -1,0 +1,11 @@
+Im absoluten Sinn gibt es keine Kontrolle. Nicht, weil sie überwunden oder widerlegt wäre, sondern weil es keinen getrennten Urheber gibt, der sie besitzen könnte. Geschehen geschieht. Leben entfaltet sich ohne Zentrum, ohne Außen, ohne Instanz, die etwas steuert. Kontrolle setzt eine Trennung voraus – Kontrolleur und Kontrolliertes – und genau diese Trennung fällt auf der letzten Ebene weg.
+
+Gleichzeitig erscheint innerhalb dieses Geschehens eine relative Welt, in der Orientierung, Entscheidung und Verantwortung real sind. Kontrolle existiert hier nicht als metaphysische Macht, sondern als funktionale Fähigkeit. Sie entsteht dort, wo das Leben sich in einer Ich-Perspektive auf sich selbst bezieht: Impulse werden wahrgenommen, Möglichkeiten unterschieden, Handlungen ausgerichtet. Diese Kontrolle ist weder Illusion noch Ursprung. Sie ist wirksam, aber nicht selbständig.
+
+Das Ich erzeugt Kontrolle nicht, es verkörpert sie. Gedanken, Gefühle und Intentionen tauchen nicht aus einem freien Willenszentrum auf, sondern erscheinen vorgegeben. Das Ich kontrolliert nicht ihr Entstehen, sondern ihren Umgang. Freiheit besteht daher nicht in Unabhängigkeit vom Ganzen, sondern in der Fähigkeit, innerhalb eines getragenen Möglichkeitsraums verantwortlich zu handeln.
+
+Problematisch wird Kontrolle erst, wenn sie ihren relativen Charakter vergisst. Wenn sich die funktionale Orientierung für den letzten Urheber hält, entsteht das, was Ego genannt wird: der Anspruch, das Geschehen besitzen oder beherrschen zu müssen. Leid entsteht nicht durch Kontrolle selbst, sondern durch die Verwechslung von lokaler Wirksamkeit mit absolutem Grund.
+
+Die Auflösung liegt weder im Festhalten noch im Abschaffen von Kontrolle. Sie liegt in ihrer Durchlässigkeit. Kontrolle darf klar, entschlossen und verantwortungsvoll sein, solange sie nicht beansprucht, das Ganze zu sein. Dann bleibt Handeln möglich, ohne Verkrampfung; Verantwortung bleibt wirksam, ohne Selbstüberhöhung.
+
+Kontrolle ist weder Illusion noch Wahrheit. Sie ist eine reale Funktion innerhalb der Erscheinung, getragen von einem Geschehen, das selbst keiner Kontrolle bedarf. Man handelt, entscheidet und trägt Folgen – nicht als Herr des Lebens, sondern als eine seiner Formen.
