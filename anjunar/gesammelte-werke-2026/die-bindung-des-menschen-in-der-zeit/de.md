@@ -1,3 +1,5 @@
+# Die Bindung des Menschen in der Zeit
+
 Die Bindung des Menschen ist nicht aus Zärtlichkeit entstanden, sondern aus Notwendigkeit. Am Anfang stand nicht das Bedürfnis nach Nähe, sondern die nackte Tatsache, dass der Einzelne allein nicht überlebte. In frühen Stammesstrukturen bedeutete Isolation fast sicher den Tod. Jagd, Kälte, Raubtiere, konkurrierende Gruppen – all das formte Nervensysteme, die sich nur im Verband regulieren konnten. Bindung war kein Ideal, sondern ein biologischer Imperativ. Der Körper lernte früh: Allein sterbe ich, gemeinsam bestehe ich.
 
 Diese erste Form der Bindung war grob, funktional und hierarchisch organisiert. Ein Stammeshäuptling strukturierte, Männer jagten und kämpften, Frauen hielten andere Rhythmen aufrecht, Kinder wuchsen in klaren Rollen auf. Es gab äußere Feinde, klare Grenzen und eindeutige Loyalitäten. Das Nervensystem wurde durch Gefahr synchronisiert. Gemeinsame Bedrohung erzeugte Ko-Regulation. Die Bindung war fest, weil sie unter Druck entstand. Sie war nicht weich, sondern stabil durch Not.

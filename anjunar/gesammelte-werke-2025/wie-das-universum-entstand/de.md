@@ -1,3 +1,5 @@
+# Wie das Universum entstand
+
 Am Anfang steht nicht ein Ding, nicht ein Wille und nicht ein
 handelndes Subjekt, sondern das Absolute. Nicht als Substanz, nicht
 als Person, nicht als Bewusstsein im psychologischen Sinn, sondern als

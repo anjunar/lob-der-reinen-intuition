@@ -1,3 +1,5 @@
+# Die Einheit ist Erkenntnis
+
 🌿 Die Einheit ist Erkenntnis. Ich erkenne: Alles ist verbunden. Ich
 
 sehe – aber ich wirke kaum. Bis ich verstehe: ❤️ Die Liebe ist das

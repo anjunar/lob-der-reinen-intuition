@@ -1,3 +1,5 @@
+# Die Vorsilbe er- wirkt im Deutschen
+
 Die Vorsilbe er- wirkt im Deutschen oft wie ein stiller Wegweiser. Sie
 zeigt uns den Weg von innen nach außen, vom Wunsch zur Verwirklichung,
 von der Möglichkeit zur Erfahrung. In der Tiefe ihrer Bedeutung liegt

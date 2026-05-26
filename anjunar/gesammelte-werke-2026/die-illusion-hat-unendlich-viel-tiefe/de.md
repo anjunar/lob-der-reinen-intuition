@@ -1,3 +1,5 @@
+# Die Illusion hat unendlich viel Tiefe
+
 Ich habe lange geglaubt, dass es zwei harte Kategorien geben muss: Entweder ist die Welt real oder sie ist Illusion. Beides sind Aussagen mit Schärfe. Beides klingt so, als würde man endlich den Boden berühren. Und gerade weil sie so scharf sind, wirken sie wie Wahrheiten. Aber je tiefer man denkt, desto mehr merkt man: Diese beiden Kategorien sind zu klein. Sie sind zu grob. Sie schneiden das Wirkliche entzwei, obwohl es in Wahrheit nur eine Bewegung ist.
 
 Denn die Welt ist real. Das ist keine Theorie. Das ist Erfahrung. Stein besteht aus Stein. Schmerz ist Schmerz. Zeit ist Zeit. Das Reale ist so gruselig genau, dass es einem die Schuhe auszieht. Es ist nicht symbolisch. Es ist nicht metaphorisch. Es ist nicht „ungefähr“. Es trifft. Es zwingt. Es widersteht. Es ist Wirklichkeit. Wer die Realität einmal wirklich gespürt hat, der weiß, dass man dieses Wort nicht leichtfertig benutzen darf.

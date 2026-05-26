@@ -1,3 +1,5 @@
+# Kontrolle
+
 Im absoluten Sinn gibt es keine Kontrolle. Nicht, weil sie überwunden oder widerlegt wäre, sondern weil es keinen getrennten Urheber gibt, der sie besitzen könnte. Geschehen geschieht. Leben entfaltet sich ohne Zentrum, ohne Außen, ohne Instanz, die etwas steuert. Kontrolle setzt eine Trennung voraus – Kontrolleur und Kontrolliertes – und genau diese Trennung fällt auf der letzten Ebene weg.
 
 Gleichzeitig erscheint innerhalb dieses Geschehens eine relative Welt, in der Orientierung, Entscheidung und Verantwortung real sind. Kontrolle existiert hier nicht als metaphysische Macht, sondern als funktionale Fähigkeit. Sie entsteht dort, wo das Leben sich in einer Ich-Perspektive auf sich selbst bezieht: Impulse werden wahrgenommen, Möglichkeiten unterschieden, Handlungen ausgerichtet. Diese Kontrolle ist weder Illusion noch Ursprung. Sie ist wirksam, aber nicht selbständig.

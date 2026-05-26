@@ -1,3 +1,5 @@
+# Achtsam gegenüber gelebter Erfahrung
+
 Zwischen Denken und Fühlen gibt es einen stillen Raum, und genau dort wohnt das gelebte Erleben. Es ist kein lauter Beweis, kein scharfes Argument, keine Formel, die sich festhalten lässt. Es ist das Zittern in einer Stimme, das Zögern vor einer Entscheidung, die Wärme einer Umarmung, die Schwere eines Verlustes. Wahrheit, die diesen Raum nicht kennt, bleibt kühl wie Glas – klar vielleicht, aber ohne Atem.
 
 Achtsam gegenüber gelebter Erfahrung zu sein heißt, nicht nur auf Worte zu hören, sondern auf das, was zwischen ihnen lebt. Es heißt zu verstehen, dass jeder Mensch eine unsichtbare Landschaft in sich trägt – aus Erinnerungen, Wunden, Hoffnungen und leisen Siegen. Wenn wir urteilen, ohne diese Landschaft zu betreten, sehen wir nur Umrisse, nicht das Leben selbst.

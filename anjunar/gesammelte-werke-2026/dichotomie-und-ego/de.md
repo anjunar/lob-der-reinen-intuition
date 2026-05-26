@@ -1,3 +1,5 @@
+# Dichotomie und Ego
+
 Die Dichotomie gehört zu den ältesten Werkzeugen des menschlichen Denkens. Seit mehr als zweitausend Jahren strukturieren Menschen ihre Welt durch Gegensätze: wahr oder falsch, richtig oder falsch, ich oder du, innen oder außen. Diese Zweiteilung ist nicht nur eine logische Methode, sondern auch eine psychologische Struktur. Sobald die Welt in Gegensätze zerfällt, entsteht automatisch ein Standpunkt. Und wo ein Standpunkt ist, entsteht auch ein Zentrum, von dem aus gesehen und beurteilt wird. Dieses Zentrum nennen wir das Ego.
 
 Das Ego erscheint in diesem Zusammenhang nicht als Fehler, sondern als eine notwendige Funktion der Dichotomie. Wenn zwei Perspektiven aufeinandertreffen, etwa im Streit darüber, wer recht hat, formt sich das Ego als Träger der eigenen Position. Es organisiert die Perspektive, verteidigt sie und gibt ihr Stabilität. Ohne dieses Zentrum würde es keinen Konflikt geben, weil niemand eine Position halten oder verteidigen könnte. In diesem Sinn ist das Ego eine Struktur, die aus der Zweiteilung der Welt hervorgeht.

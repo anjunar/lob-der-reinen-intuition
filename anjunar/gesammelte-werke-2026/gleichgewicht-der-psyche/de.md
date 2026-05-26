@@ -1,3 +1,5 @@
+# Gleichgewicht der Psyche
+
 Wenn man es ganz genau nimmt, ist Denken kein Werkzeug, das auf ein Ziel ausgerichtet sein muss, sondern ein Vorgang, der sich selbst genügt. Ein Gedanke taucht auf, entfaltet sich, zeigt seine Struktur, seine Konsequenzen, seine Spannung – und wenn er vollständig durchlaufen ist, verliert er von selbst seine Dringlichkeit.Er muss nicht gelöst, nicht angewendet, nicht konserviert werden. Er endet einfach. Und genau darin liegt seine Wirkung.
 
 Der tiefere Sinn dieses Vorgangs liegt weniger in Erkenntnis als solcher, sondern in etwas Grundlegenderem: dem Gleichgewicht der Psyche. Denken dient nicht primär der Wahrheit, der Erklärung oder der Selbstoptimierung, sondern der inneren Regulation. Ein unausgesprochener, unfertig gedachter Gedanke erzeugt Spannung. Ein zu Ende gedachter Gedanke löst sie. In diesem Sinn ist Denken ein ausgleichender Prozess – kein intellektueller Luxus, sondern eine psychische Notwendigkeit.

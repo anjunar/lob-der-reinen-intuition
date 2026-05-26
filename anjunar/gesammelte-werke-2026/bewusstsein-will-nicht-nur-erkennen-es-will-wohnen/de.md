@@ -1,3 +1,5 @@
+# Bewusstsein will nicht nur erkennen, es will wohnen
+
 Der Mensch lebt nicht nur in Häusern, Straßen und Städten. Er lebt immer auch in inneren Räumen. Vielleicht ist das sogar die tiefere Wahrheit seines Daseins: dass er nicht nur in der Welt wohnt, sondern dass die Welt in ihm zu einer zweiten Wohnform wird. Eine äußere Wohnung schützt den Körper. Eine innere Wohnung schützt das Bewusstsein vor Zerstreuung, Sinnverlust und innerer Heimatlosigkeit. Wohnen ist deshalb nicht nur eine architektonische, sondern auch eine metaphysische Angelegenheit.
 
 Bewusstsein wird oft zu funktional verstanden, als Wahrnehmung, Aufmerksamkeit oder Denken. Aber Bewusstsein ist mehr. Es ist die Fähigkeit des Seins, innen zu entstehen. Und wo Innen entsteht, entsteht nicht nur Licht, sondern auch Raum. Kein messbarer Raum, sondern ein Raum aus Erinnerung, Bedeutung, Nähe, Atmosphäre und Dauer. Ein Raum, in dem das Wirkliche nicht bloß geschieht, sondern bleiben darf. Vielleicht ist genau das die tiefere Bedeutung von Wohnung im Bewusstsein: dass das Leben nicht einfach durch uns hindurchzieht, sondern in uns Innenräume bildet.

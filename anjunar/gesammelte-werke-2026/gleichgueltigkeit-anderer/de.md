@@ -1,3 +1,5 @@
+# Gleichgültigkeit anderer
+
 Inmitten einer Welt von starren Blicken, in der die Menschen wie Schatten durch die Straßen wandeln, steht sie: ein Lichtstrahl im Grau. Nicht laut, nicht grell, nur ein stilles Glühen, das aus dem Inneren kommt. Ihr Blick ist aufwärts gerichtet, ihre Augen weit, als wollten sie das Unsichtbare sehen, das immer da ist – das pulsierende Wunder, das Leben selbst.
 
 Um sie herum verharren die anderen in mechanischer Routine, gleichgültig gegenüber der Tiefe, die alles durchdringt. Sie leben, ja, sie atmen, sie bewegen sich – doch in ihren Gesichtern fehlt die Resonanz des Staunens. Es ist nicht das Fehlen von Schmerz oder Freude, sondern das Fehlen der Frage: „Warum bin ich hier? Was bedeutet dieses Dasein?“

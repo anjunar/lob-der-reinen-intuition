@@ -1,3 +1,5 @@
+# Eine Welt aus Logik und Unlogik
+
 Die Welt leidet nicht an Bosheit, sondern an einer strukturellen Spannung, die tiefer reicht als Moral, Politik oder Technik. Sie leidet daran, dass das Wirkliche nicht vollständig logisch ist, während der Mensch gezwungen ist, mit Logik zu leben. Existenz ist ein Geflecht aus Logik und Unlogik, aus Ordnung und Offenheit, aus Form und dem, was sich jeder Form entzieht. Dieses Spannungsfeld ist kein Fehler der Welt, sondern ihre Grundbedingung. Doch genau hier beginnt das menschliche Problem.
 
 Um in einer unabschließbaren Wirklichkeit handlungsfähig zu sein, erschafft der Mensch Systeme. Wirtschaft, Politik, Religion, Wissenschaft – und auch das psychische Ich – sind Versuche, das Offene zu stabilisieren. Systeme sind notwendig, aber sie sind geschlossen. Sie erkennen nur, was in ihre eigene Sprache passt. Sobald sie vergessen, dass sie Werkzeuge sind, beginnen sie, sich selbst zu genügen. Dann wird Ordnung mit Wahrheit verwechselt, Funktion mit Sinn, Stabilität mit Wirklichkeit.

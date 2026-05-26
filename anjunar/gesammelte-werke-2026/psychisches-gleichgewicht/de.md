@@ -1,3 +1,5 @@
+# Psychisches Gleichgewicht
+
 Das psychische Gleichgewicht ist kein schöner, fester Zustand, den man irgendwann „hat“, sondern ein ständiges, oft mühsames Gerangel mit sich selbst. Es setzt sich aus tausenden kleiner Gedanken zusammen – meistens automatischen, halb bewussten – die einen entweder ein bisschen beruhigen oder noch mehr durcheinanderbringen. Diese Gedanken sind keine sauberen philosophischen Sätze, sondern oft banale Selbstgespräche: „Das schaff ich schon“, „Die anderen sind eh alle Arschlöcher“, „Bestimmt geht das schief“ oder „Ich bin einfach zu blöd dafür“.
 
 Was zählt, ist weniger, ob der Gedanke stimmt, sondern ob er einem gerade das Gefühl gibt, dass alles irgendwie zusammenpasst. In stressigen Phasen kann ein total verzerrter Gedanke – „Meine Freundin meldet sich nicht, weil sie mich hasst“ – paradoxerweise beruhigen, weil er eine klare Erklärung liefert. Plötzlich hat das Chaos einen Namen, und man fühlt sich nicht mehr völlig verloren. Das Gehirn liebt das. Es belohnt jede Geschichte, die Lücken schließt, egal wie dämlich sie ist.

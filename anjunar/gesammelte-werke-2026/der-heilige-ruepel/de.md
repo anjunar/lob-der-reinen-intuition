@@ -1,3 +1,5 @@
+# Der Heilige Rüpel
+
 Der Heilige Rüpel ist eine außergewöhnliche Figur im spirituellen Denken, die die Spannung zwischen Befreiung und menschlicher Wirklichkeit verkörpert. Anders als der Buddha, dessen Lehren systematisiert und erklärt werden können, ist der Heilige Rüpel ein Archetyp der gelebten Individualität in Freiheit. Er steht jenseits der formalen Prinzipien, die das Leiden auflösen, und kehrt bewusst zurück in die Welt, in der Konflikte, Ärger, Humor und Negativität existieren.
 
 Der Buddha zeigt den Weg der Befreiung: durch Einsicht, Meditation und das Durchschauen der Ursachen des Leidens wird ein Zustand erreicht, der frei von Verstrickung ist. Seine Lehre ist klar, strukturiert und übertragbar. Sie kann erklärt, analysiert und nachvollzogen werden. Der Buddha verkörpert die reine Form des Geistes, der das Leiden verstanden hat und jenseits von Anhaftung und Gier steht. Diese Klarheit macht ihn universell verständlich, doch gleichzeitig auch unnahbar für die meisten Menschen, weil sie eine Form der Distanz schafft.

@@ -1,3 +1,5 @@
+# Nicht ich-los, sondern dem Ganzen gewidmet
+
 Der Begriff „Ich-losigkeit“ ist aus meiner Sicht irreführend.
 
 Er klingt nach Kontrollverlust, nach Auflösung von Handlungsfähigkeit – und genau das ist es nicht.

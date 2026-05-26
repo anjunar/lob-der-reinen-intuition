@@ -1,3 +1,5 @@
+# Das Erleben
+
 Am Anfang steht etwas, das so selbstverständlich ist, dass es fast unsichtbar bleibt: das Erleben selbst. Noch bevor irgendein Gedanke entsteht, bevor irgendeine Theorie formuliert wird, ist da bereits Klang, Farbe, Berührung, Stimmung. Die Welt erscheint. Nicht als abstrakte Gleichung, sondern als unmittelbare Gegenwart. Ein Ton erklingt nicht als physikalische Formel, sondern als gehörte Qualität. Rot erscheint nicht als Wellenlänge, sondern als Röte. Alles, was jemals gewusst wird, wird auf diese Weise gewusst: als Erlebnis.
 
 Wenn man diesen einfachen Umstand ernst nimmt, verschiebt sich die Perspektive grundlegend. Der Körper erscheint im Erleben. Gedanken erscheinen im Erleben. Gefühle erscheinen im Erleben. Selbst die Vorstellung einer äußeren Welt erscheint nur auf diese Weise. Das bedeutet nicht, dass der Körper oder die Welt geleugnet werden müssen. Es bedeutet nur, dass ihr Zugang immer durch das Erleben hindurch erfolgt. Es gibt keinen Standpunkt außerhalb davon.

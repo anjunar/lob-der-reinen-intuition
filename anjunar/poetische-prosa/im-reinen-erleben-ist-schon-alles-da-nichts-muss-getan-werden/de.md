@@ -1,3 +1,5 @@
+# Im reinen Erleben ist schon alles da, nichts muss getan werden
+
 Alles liegt schon auf dem Tisch — die Tassen, der Tee, das Universum.
 
 Das Ich kommt rein, schaut kurz neugierig, tut so, als hätte es das

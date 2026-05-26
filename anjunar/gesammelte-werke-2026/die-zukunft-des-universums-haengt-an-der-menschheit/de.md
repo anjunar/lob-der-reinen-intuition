@@ -1,3 +1,5 @@
+# Die Zukunft des Universums hängt an der Menschheit
+
 Zusammenfassung:
 
 Das Universum erscheint in diesem Modell als lebendiger, zyklischer Prozess, dessen Fortbestand nicht selbstverständlich ist. Zwei göttliche Prinzipien stehen für unterschiedliche Antworten auf das Leid: Gott als Grenze und Möglichkeit des Abbruchs, Krishna als Kraft der Fortführung und bewussten Weiterentwicklung. Die Menschheit ist dabei der Prüfstein, ob Existenz verantwortbar bleibt.
